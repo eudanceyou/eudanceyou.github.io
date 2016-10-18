@@ -9,7 +9,7 @@ tags: [Kelsey Rose White Collection]
 Just **$289.99**
 ### 
 
-<a href="https://www.readybrides.com/en/kelsey-rose-white-collection/63638-kelsey-rose-white-collection-style-80005.html"><img src="//static.msromantic.com/146802/kelsey-rose-white-collection-style-80005.jpg" alt="Kelsey Rose White Collection Style 80005" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/kelsey-rose-white-collection/63638-kelsey-rose-white-collection-style-80005.html"><img src="//static.msromantic.com/146802/kelsey-rose-white-collection-style-80005.jpg" alt="Kelsey Rose White Collection Style 80005" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/kelsey-rose-white-collection/63638-kelsey-rose-white-collection-style-80005.html"><img src="//static.msromantic.com/146801/kelsey-rose-white-collection-style-80005.jpg" alt="Kelsey Rose White Collection Style 80005" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/kelsey-rose-white-collection/63638-kelsey-rose-white-collection-style-80005.html](https://www.readybrides.com/en/kelsey-rose-white-collection/63638-kelsey-rose-white-collection-style-80005.html)
+<!-- break --><a href="https://www.antebrands.com/en/kelsey-rose-white-collection/63638-kelsey-rose-white-collection-style-80005.html"><img src="//static.msromantic.com/146801/kelsey-rose-white-collection-style-80005.jpg" alt="Kelsey Rose White Collection Style 80005" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/kelsey-rose-white-collection/63638-kelsey-rose-white-collection-style-80005.html](https://www.antebrands.com/en/kelsey-rose-white-collection/63638-kelsey-rose-white-collection-style-80005.html)

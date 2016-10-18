@@ -9,7 +9,7 @@ tags: [Riki Dalal Toscanna]
 Just **$559.99**
 ### 
 
-<a href="https://www.readybrides.com/en/riki-dalal-toscanna/65713-riki-dalal-toscanna-style-1401.html"><img src="//static.msromantic.com/151630/riki-dalal-toscanna-style-1401.jpg" alt="Riki Dalal Toscanna Style 1401" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/riki-dalal-toscanna/65713-riki-dalal-toscanna-style-1401.html"><img src="//static.msromantic.com/151630/riki-dalal-toscanna-style-1401.jpg" alt="Riki Dalal Toscanna Style 1401" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/riki-dalal-toscanna/65713-riki-dalal-toscanna-style-1401.html](https://www.readybrides.com/en/riki-dalal-toscanna/65713-riki-dalal-toscanna-style-1401.html)
+Buy it: [https://www.antebrands.com/en/riki-dalal-toscanna/65713-riki-dalal-toscanna-style-1401.html](https://www.antebrands.com/en/riki-dalal-toscanna/65713-riki-dalal-toscanna-style-1401.html)

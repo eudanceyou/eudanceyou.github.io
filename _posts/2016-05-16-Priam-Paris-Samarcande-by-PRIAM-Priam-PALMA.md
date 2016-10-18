@@ -9,7 +9,7 @@ tags: [Priam Paris Samarcande by PRIAM]
 Just **$359.99**
 ### 
 
-<a href="https://www.readybrides.com/en/priam-paris-samarcande-by-priam/65762-priam-palma.html"><img src="//static.msromantic.com/151679/priam-palma.jpg" alt="Priam PALMA" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/priam-paris-samarcande-by-priam/65762-priam-palma.html"><img src="//static.msromantic.com/151679/priam-palma.jpg" alt="Priam PALMA" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/priam-paris-samarcande-by-priam/65762-priam-palma.html](https://www.readybrides.com/en/priam-paris-samarcande-by-priam/65762-priam-palma.html)
+Buy it: [https://www.antebrands.com/en/priam-paris-samarcande-by-priam/65762-priam-palma.html](https://www.antebrands.com/en/priam-paris-samarcande-by-priam/65762-priam-palma.html)

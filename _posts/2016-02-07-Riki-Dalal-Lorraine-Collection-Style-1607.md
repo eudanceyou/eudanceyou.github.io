@@ -9,7 +9,7 @@ tags: [Riki Dalal Lorraine Collection]
 Just **$659.99**
 ### 
 
-<a href="https://www.readybrides.com/en/riki-dalal-lorraine-collection/65663-riki-dalal-lorraine-collection-style-1607.html"><img src="//static.msromantic.com/151580/riki-dalal-lorraine-collection-style-1607.jpg" alt="Riki Dalal Lorraine Collection Style 1607" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/riki-dalal-lorraine-collection/65663-riki-dalal-lorraine-collection-style-1607.html"><img src="//static.msromantic.com/151580/riki-dalal-lorraine-collection-style-1607.jpg" alt="Riki Dalal Lorraine Collection Style 1607" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/riki-dalal-lorraine-collection/65663-riki-dalal-lorraine-collection-style-1607.html](https://www.readybrides.com/en/riki-dalal-lorraine-collection/65663-riki-dalal-lorraine-collection-style-1607.html)
+Buy it: [https://www.antebrands.com/en/riki-dalal-lorraine-collection/65663-riki-dalal-lorraine-collection-style-1607.html](https://www.antebrands.com/en/riki-dalal-lorraine-collection/65663-riki-dalal-lorraine-collection-style-1607.html)

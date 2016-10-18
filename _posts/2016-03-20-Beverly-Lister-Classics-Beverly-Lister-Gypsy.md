@@ -9,7 +9,7 @@ tags: [Beverly Lister Classics]
 Just **$249.99**
 ### 
 
-<a href="https://www.readybrides.com/en/beverly-lister-classics/61502-beverly-lister-gypsy.html"><img src="//static.msromantic.com/142511/beverly-lister-gypsy.jpg" alt="Beverly Lister Gypsy" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/beverly-lister-classics/61502-beverly-lister-gypsy.html"><img src="//static.msromantic.com/142511/beverly-lister-gypsy.jpg" alt="Beverly Lister Gypsy" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/beverly-lister-classics/61502-beverly-lister-gypsy.html](https://www.readybrides.com/en/beverly-lister-classics/61502-beverly-lister-gypsy.html)
+Buy it: [https://www.antebrands.com/en/beverly-lister-classics/61502-beverly-lister-gypsy.html](https://www.antebrands.com/en/beverly-lister-classics/61502-beverly-lister-gypsy.html)

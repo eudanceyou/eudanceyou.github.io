@@ -9,7 +9,7 @@ tags: [Priam Paris Samarcande by PRIAM]
 Just **$349.99**
 ### 
 
-<a href="https://www.readybrides.com/en/priam-paris-samarcande-by-priam/65758-priam-javea.html"><img src="//static.msromantic.com/151675/priam-javea.jpg" alt="Priam JAVEA" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/priam-paris-samarcande-by-priam/65758-priam-javea.html"><img src="//static.msromantic.com/151675/priam-javea.jpg" alt="Priam JAVEA" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/priam-paris-samarcande-by-priam/65758-priam-javea.html](https://www.readybrides.com/en/priam-paris-samarcande-by-priam/65758-priam-javea.html)
+Buy it: [https://www.antebrands.com/en/priam-paris-samarcande-by-priam/65758-priam-javea.html](https://www.antebrands.com/en/priam-paris-samarcande-by-priam/65758-priam-javea.html)

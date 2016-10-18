@@ -9,7 +9,7 @@ tags: [Peter Langner Collection 2016]
 Just **$359.99**
 ### 
 
-<a href="https://www.readybrides.com/en/peter-langner-collection-2016/65226-peter-langner-josephine.html"><img src="//static.msromantic.com/150735/peter-langner-josephine.jpg" alt="Peter Langner JOSEPHINE" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/peter-langner-collection-2016/65226-peter-langner-josephine.html"><img src="//static.msromantic.com/150735/peter-langner-josephine.jpg" alt="Peter Langner JOSEPHINE" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/peter-langner-collection-2016/65226-peter-langner-josephine.html"><img src="//static.msromantic.com/150734/peter-langner-josephine.jpg" alt="Peter Langner JOSEPHINE" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/peter-langner-collection-2016/65226-peter-langner-josephine.html](https://www.readybrides.com/en/peter-langner-collection-2016/65226-peter-langner-josephine.html)
+<!-- break --><a href="https://www.antebrands.com/en/peter-langner-collection-2016/65226-peter-langner-josephine.html"><img src="//static.msromantic.com/150734/peter-langner-josephine.jpg" alt="Peter Langner JOSEPHINE" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/peter-langner-collection-2016/65226-peter-langner-josephine.html](https://www.antebrands.com/en/peter-langner-collection-2016/65226-peter-langner-josephine.html)

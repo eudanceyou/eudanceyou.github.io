@@ -9,7 +9,7 @@ tags: [Kitty Chen Couture Kittychen1 2012]
 Just **$409.99**
 ### 
 
-<a href="https://www.readybrides.com/en/kitty-chen-couture-kittychen1-2012/63578-kitty-chen-couture-florence.html"><img src="//static.msromantic.com/146667/kitty-chen-couture-florence.jpg" alt="Kitty Chen Couture Florence" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/kitty-chen-couture-kittychen1-2012/63578-kitty-chen-couture-florence.html"><img src="//static.msromantic.com/146667/kitty-chen-couture-florence.jpg" alt="Kitty Chen Couture Florence" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/kitty-chen-couture-kittychen1-2012/63578-kitty-chen-couture-florence.html"><img src="//static.msromantic.com/146666/kitty-chen-couture-florence.jpg" alt="Kitty Chen Couture Florence" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/kitty-chen-couture-kittychen1-2012/63578-kitty-chen-couture-florence.html](https://www.readybrides.com/en/kitty-chen-couture-kittychen1-2012/63578-kitty-chen-couture-florence.html)
+<!-- break --><a href="https://www.antebrands.com/en/kitty-chen-couture-kittychen1-2012/63578-kitty-chen-couture-florence.html"><img src="//static.msromantic.com/146666/kitty-chen-couture-florence.jpg" alt="Kitty Chen Couture Florence" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/kitty-chen-couture-kittychen1-2012/63578-kitty-chen-couture-florence.html](https://www.antebrands.com/en/kitty-chen-couture-kittychen1-2012/63578-kitty-chen-couture-florence.html)

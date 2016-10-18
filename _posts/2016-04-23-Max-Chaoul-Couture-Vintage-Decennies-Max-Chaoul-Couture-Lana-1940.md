@@ -9,7 +9,7 @@ tags: [Max Chaoul Couture Vintage Decennies]
 Just **$259.99**
 ### 
 
-<a href="https://www.readybrides.com/en/max-chaoul-couture-vintage-decennies/63871-max-chaoul-couture-lana-1940.html"><img src="//static.msromantic.com/147436/max-chaoul-couture-lana-1940.jpg" alt="Max Chaoul Couture Lana - 1940" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/max-chaoul-couture-vintage-decennies/63871-max-chaoul-couture-lana-1940.html"><img src="//static.msromantic.com/147436/max-chaoul-couture-lana-1940.jpg" alt="Max Chaoul Couture Lana - 1940" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/max-chaoul-couture-vintage-decennies/63871-max-chaoul-couture-lana-1940.html](https://www.readybrides.com/en/max-chaoul-couture-vintage-decennies/63871-max-chaoul-couture-lana-1940.html)
+Buy it: [https://www.antebrands.com/en/max-chaoul-couture-vintage-decennies/63871-max-chaoul-couture-lana-1940.html](https://www.antebrands.com/en/max-chaoul-couture-vintage-decennies/63871-max-chaoul-couture-lana-1940.html)

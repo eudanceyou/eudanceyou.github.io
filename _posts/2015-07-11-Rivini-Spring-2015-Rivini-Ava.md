@@ -9,7 +9,7 @@ tags: [Rivini  Spring 2015]
 Just **$389.99**
 ### 
 
-<a href="https://www.readybrides.com/en/rivini-spring-2015/65919-rivini-ava.html"><img src="//static.msromantic.com/151977/rivini-ava.jpg" alt="Rivini  Ava" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/rivini-spring-2015/65919-rivini-ava.html"><img src="//static.msromantic.com/151977/rivini-ava.jpg" alt="Rivini  Ava" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/rivini-spring-2015/65919-rivini-ava.html](https://www.readybrides.com/en/rivini-spring-2015/65919-rivini-ava.html)
+Buy it: [https://www.antebrands.com/en/rivini-spring-2015/65919-rivini-ava.html](https://www.antebrands.com/en/rivini-spring-2015/65919-rivini-ava.html)

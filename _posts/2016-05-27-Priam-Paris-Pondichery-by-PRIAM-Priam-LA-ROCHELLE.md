@@ -9,7 +9,7 @@ tags: [Priam Paris Pondichery by PRIAM]
 Just **$379.99**
 ### 
 
-<a href="https://www.readybrides.com/en/priam-paris-pondichery-by-priam/65773-priam-la-rochelle.html"><img src="//static.msromantic.com/151690/priam-la-rochelle.jpg" alt="Priam LA ROCHELLE" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/priam-paris-pondichery-by-priam/65773-priam-la-rochelle.html"><img src="//static.msromantic.com/151690/priam-la-rochelle.jpg" alt="Priam LA ROCHELLE" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/priam-paris-pondichery-by-priam/65773-priam-la-rochelle.html](https://www.readybrides.com/en/priam-paris-pondichery-by-priam/65773-priam-la-rochelle.html)
+Buy it: [https://www.antebrands.com/en/priam-paris-pondichery-by-priam/65773-priam-la-rochelle.html](https://www.antebrands.com/en/priam-paris-pondichery-by-priam/65773-priam-la-rochelle.html)

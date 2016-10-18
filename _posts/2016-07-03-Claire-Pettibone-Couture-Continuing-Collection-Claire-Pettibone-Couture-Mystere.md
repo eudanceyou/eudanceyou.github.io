@@ -9,8 +9,8 @@ tags: [Claire Pettibone Couture Continuing Collection]
 Just **$469.99**
 ### 
 
-<a href="https://www.readybrides.com/en/claire-pettibone-couture-continuing-collection/62074-claire-pettibone-couture-mystere.html"><img src="//static.msromantic.com/143738/claire-pettibone-couture-mystere.jpg" alt="Claire Pettibone Couture Mystere" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/claire-pettibone-couture-continuing-collection/62074-claire-pettibone-couture-mystere.html"><img src="//static.msromantic.com/143738/claire-pettibone-couture-mystere.jpg" alt="Claire Pettibone Couture Mystere" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/claire-pettibone-couture-continuing-collection/62074-claire-pettibone-couture-mystere.html"><img src="//static.msromantic.com/143739/claire-pettibone-couture-mystere.jpg" alt="Claire Pettibone Couture Mystere" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/claire-pettibone-couture-continuing-collection/62074-claire-pettibone-couture-mystere.html"><img src="//static.msromantic.com/143737/claire-pettibone-couture-mystere.jpg" alt="Claire Pettibone Couture Mystere" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/claire-pettibone-couture-continuing-collection/62074-claire-pettibone-couture-mystere.html](https://www.readybrides.com/en/claire-pettibone-couture-continuing-collection/62074-claire-pettibone-couture-mystere.html)
+<!-- break --><a href="https://www.antebrands.com/en/claire-pettibone-couture-continuing-collection/62074-claire-pettibone-couture-mystere.html"><img src="//static.msromantic.com/143739/claire-pettibone-couture-mystere.jpg" alt="Claire Pettibone Couture Mystere" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/claire-pettibone-couture-continuing-collection/62074-claire-pettibone-couture-mystere.html"><img src="//static.msromantic.com/143737/claire-pettibone-couture-mystere.jpg" alt="Claire Pettibone Couture Mystere" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/claire-pettibone-couture-continuing-collection/62074-claire-pettibone-couture-mystere.html](https://www.antebrands.com/en/claire-pettibone-couture-continuing-collection/62074-claire-pettibone-couture-mystere.html)

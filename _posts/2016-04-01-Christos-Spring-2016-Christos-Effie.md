@@ -9,7 +9,7 @@ tags: [Christos Spring 2016]
 Just **$349.99**
 ### 
 
-<a href="https://www.readybrides.com/en/christos-spring-2016/61514-christos-effie.html"><img src="//static.msromantic.com/142536/christos-effie.jpg" alt="Christos Effie" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/christos-spring-2016/61514-christos-effie.html"><img src="//static.msromantic.com/142536/christos-effie.jpg" alt="Christos Effie" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/christos-spring-2016/61514-christos-effie.html"><img src="//static.msromantic.com/142535/christos-effie.jpg" alt="Christos Effie" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/christos-spring-2016/61514-christos-effie.html](https://www.readybrides.com/en/christos-spring-2016/61514-christos-effie.html)
+<!-- break --><a href="https://www.antebrands.com/en/christos-spring-2016/61514-christos-effie.html"><img src="//static.msromantic.com/142535/christos-effie.jpg" alt="Christos Effie" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/christos-spring-2016/61514-christos-effie.html](https://www.antebrands.com/en/christos-spring-2016/61514-christos-effie.html)

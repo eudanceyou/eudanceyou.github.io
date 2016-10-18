@@ -9,7 +9,7 @@ tags: [Kitty Chen Couture Ivoire Paris 2015]
 Just **$419.99**
 ### 
 
-<a href="https://www.readybrides.com/en/kitty-chen-couture-ivoire-paris-2015/63506-kitty-chen-couture-fleur.html"><img src="//static.msromantic.com/146506/kitty-chen-couture-fleur.jpg" alt="Kitty Chen Couture Fleur" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/kitty-chen-couture-ivoire-paris-2015/63506-kitty-chen-couture-fleur.html"><img src="//static.msromantic.com/146506/kitty-chen-couture-fleur.jpg" alt="Kitty Chen Couture Fleur" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/kitty-chen-couture-ivoire-paris-2015/63506-kitty-chen-couture-fleur.html"><img src="//static.msromantic.com/146505/kitty-chen-couture-fleur.jpg" alt="Kitty Chen Couture Fleur" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/kitty-chen-couture-ivoire-paris-2015/63506-kitty-chen-couture-fleur.html](https://www.readybrides.com/en/kitty-chen-couture-ivoire-paris-2015/63506-kitty-chen-couture-fleur.html)
+<!-- break --><a href="https://www.antebrands.com/en/kitty-chen-couture-ivoire-paris-2015/63506-kitty-chen-couture-fleur.html"><img src="//static.msromantic.com/146505/kitty-chen-couture-fleur.jpg" alt="Kitty Chen Couture Fleur" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/kitty-chen-couture-ivoire-paris-2015/63506-kitty-chen-couture-fleur.html](https://www.antebrands.com/en/kitty-chen-couture-ivoire-paris-2015/63506-kitty-chen-couture-fleur.html)

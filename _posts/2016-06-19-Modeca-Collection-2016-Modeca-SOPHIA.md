@@ -9,9 +9,9 @@ tags: [Modeca Collection 2016]
 Just **$389.99**
 ### 
 
-<a href="https://www.readybrides.com/en/modeca-collection-2016/63928-modeca-sophia.html"><img src="//static.msromantic.com/147597/modeca-sophia.jpg" alt="Modeca SOPHIA" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/modeca-collection-2016/63928-modeca-sophia.html"><img src="//static.msromantic.com/147597/modeca-sophia.jpg" alt="Modeca SOPHIA" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/modeca-collection-2016/63928-modeca-sophia.html"><img src="//static.msromantic.com/147598/modeca-sophia.jpg" alt="Modeca SOPHIA" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/modeca-collection-2016/63928-modeca-sophia.html"><img src="//static.msromantic.com/147599/modeca-sophia.jpg" alt="Modeca SOPHIA" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/modeca-collection-2016/63928-modeca-sophia.html"><img src="//static.msromantic.com/147596/modeca-sophia.jpg" alt="Modeca SOPHIA" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/modeca-collection-2016/63928-modeca-sophia.html](https://www.readybrides.com/en/modeca-collection-2016/63928-modeca-sophia.html)
+<!-- break --><a href="https://www.antebrands.com/en/modeca-collection-2016/63928-modeca-sophia.html"><img src="//static.msromantic.com/147598/modeca-sophia.jpg" alt="Modeca SOPHIA" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/modeca-collection-2016/63928-modeca-sophia.html"><img src="//static.msromantic.com/147599/modeca-sophia.jpg" alt="Modeca SOPHIA" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/modeca-collection-2016/63928-modeca-sophia.html"><img src="//static.msromantic.com/147596/modeca-sophia.jpg" alt="Modeca SOPHIA" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/modeca-collection-2016/63928-modeca-sophia.html](https://www.antebrands.com/en/modeca-collection-2016/63928-modeca-sophia.html)

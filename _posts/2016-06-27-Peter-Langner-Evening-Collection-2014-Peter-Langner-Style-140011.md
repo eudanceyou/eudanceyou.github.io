@@ -9,7 +9,7 @@ tags: [Peter Langner Evening Collection 2014]
 Just **$369.99**
 ### 
 
-<a href="https://www.readybrides.com/en/peter-langner-evening-collection-2014/65337-peter-langner-style-140011.html"><img src="//static.msromantic.com/151022/peter-langner-style-140011.jpg" alt="Peter Langner Style  140011" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/peter-langner-evening-collection-2014/65337-peter-langner-style-140011.html"><img src="//static.msromantic.com/151022/peter-langner-style-140011.jpg" alt="Peter Langner Style  140011" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/peter-langner-evening-collection-2014/65337-peter-langner-style-140011.html"><img src="//static.msromantic.com/151021/peter-langner-style-140011.jpg" alt="Peter Langner Style  140011" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/peter-langner-evening-collection-2014/65337-peter-langner-style-140011.html](https://www.readybrides.com/en/peter-langner-evening-collection-2014/65337-peter-langner-style-140011.html)
+<!-- break --><a href="https://www.antebrands.com/en/peter-langner-evening-collection-2014/65337-peter-langner-style-140011.html"><img src="//static.msromantic.com/151021/peter-langner-style-140011.jpg" alt="Peter Langner Style  140011" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/peter-langner-evening-collection-2014/65337-peter-langner-style-140011.html](https://www.antebrands.com/en/peter-langner-evening-collection-2014/65337-peter-langner-style-140011.html)

@@ -9,7 +9,7 @@ tags: [Riki Dalal Provencecollection]
 Just **$349.99**
 ### 
 
-<a href="https://www.readybrides.com/en/riki-dalal-provencecollection/65679-riki-dalal-provencecollection-style-1508.html"><img src="//static.msromantic.com/151596/riki-dalal-provencecollection-style-1508.jpg" alt="Riki Dalal Provencecollection Style 1508" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/riki-dalal-provencecollection/65679-riki-dalal-provencecollection-style-1508.html"><img src="//static.msromantic.com/151596/riki-dalal-provencecollection-style-1508.jpg" alt="Riki Dalal Provencecollection Style 1508" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/riki-dalal-provencecollection/65679-riki-dalal-provencecollection-style-1508.html](https://www.readybrides.com/en/riki-dalal-provencecollection/65679-riki-dalal-provencecollection-style-1508.html)
+Buy it: [https://www.antebrands.com/en/riki-dalal-provencecollection/65679-riki-dalal-provencecollection-style-1508.html](https://www.antebrands.com/en/riki-dalal-provencecollection/65679-riki-dalal-provencecollection-style-1508.html)

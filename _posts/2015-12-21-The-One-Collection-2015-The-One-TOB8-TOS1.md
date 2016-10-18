@@ -9,7 +9,7 @@ tags: [The One Collection 2015]
 Just **$319.99**
 ### 
 
-<a href="https://www.readybrides.com/en/the-one-collection-2015/60945-the-one-tob-8-tos-1.html"><img src="//static.msromantic.com/141639/the-one-tob-8-tos-1.jpg" alt="The One TOB-8 TOS-1" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/the-one-collection-2015/60945-the-one-tob-8-tos-1.html"><img src="//static.msromantic.com/141639/the-one-tob-8-tos-1.jpg" alt="The One TOB-8 TOS-1" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/the-one-collection-2015/60945-the-one-tob-8-tos-1.html](https://www.readybrides.com/en/the-one-collection-2015/60945-the-one-tob-8-tos-1.html)
+Buy it: [https://www.antebrands.com/en/the-one-collection-2015/60945-the-one-tob-8-tos-1.html](https://www.antebrands.com/en/the-one-collection-2015/60945-the-one-tob-8-tos-1.html)

@@ -9,7 +9,7 @@ tags: [Christos Spring 2015]
 Just **$339.99**
 ### 
 
-<a href="https://www.readybrides.com/en/christos-spring-2015/61524-christos-ellie.html"><img src="//static.msromantic.com/142555/christos-ellie.jpg" alt="Christos Ellie" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/christos-spring-2015/61524-christos-ellie.html"><img src="//static.msromantic.com/142555/christos-ellie.jpg" alt="Christos Ellie" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/christos-spring-2015/61524-christos-ellie.html"><img src="//static.msromantic.com/142554/christos-ellie.jpg" alt="Christos Ellie" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/christos-spring-2015/61524-christos-ellie.html](https://www.readybrides.com/en/christos-spring-2015/61524-christos-ellie.html)
+<!-- break --><a href="https://www.antebrands.com/en/christos-spring-2015/61524-christos-ellie.html"><img src="//static.msromantic.com/142554/christos-ellie.jpg" alt="Christos Ellie" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/christos-spring-2015/61524-christos-ellie.html](https://www.antebrands.com/en/christos-spring-2015/61524-christos-ellie.html)

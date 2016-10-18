@@ -9,7 +9,7 @@ tags: [Constantino Collections 2012]
 Just **$299.99**
 ### 
 
-<a href="https://www.readybrides.com/en/constantino-collections-2012/62298-constantino-blue-dream.html"><img src="//static.msromantic.com/144540/constantino-blue-dream.jpg" alt="Constantino Νυφικό Blue Dream" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/constantino-collections-2012/62298-constantino-blue-dream.html"><img src="//static.msromantic.com/144540/constantino-blue-dream.jpg" alt="Constantino Νυφικό Blue Dream" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/constantino-collections-2012/62298-constantino-blue-dream.html](https://www.readybrides.com/en/constantino-collections-2012/62298-constantino-blue-dream.html)
+Buy it: [https://www.antebrands.com/en/constantino-collections-2012/62298-constantino-blue-dream.html](https://www.antebrands.com/en/constantino-collections-2012/62298-constantino-blue-dream.html)

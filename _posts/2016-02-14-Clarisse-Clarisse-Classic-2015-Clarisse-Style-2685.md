@@ -11,8 +11,8 @@ tags: [Clarisse Clarisse Classic 2015]
 Just **$409.99**
 ### 
 
-<a href="https://www.readybrides.com/en/clarisse-clarisse-classic-2015/61000-clarisse-style-2685.html"><img src="//static.msromantic.com/141706/clarisse-style-2685.jpg" alt="Clarisse Style: 
+<a href="https://www.antebrands.com/en/clarisse-clarisse-classic-2015/61000-clarisse-style-2685.html"><img src="//static.msromantic.com/141706/clarisse-style-2685.jpg" alt="Clarisse Style: 
 2685" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/clarisse-clarisse-classic-2015/61000-clarisse-style-2685.html](https://www.readybrides.com/en/clarisse-clarisse-classic-2015/61000-clarisse-style-2685.html)
+Buy it: [https://www.antebrands.com/en/clarisse-clarisse-classic-2015/61000-clarisse-style-2685.html](https://www.antebrands.com/en/clarisse-clarisse-classic-2015/61000-clarisse-style-2685.html)

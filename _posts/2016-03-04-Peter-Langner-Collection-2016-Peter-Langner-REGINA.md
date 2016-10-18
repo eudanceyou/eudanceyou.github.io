@@ -9,7 +9,7 @@ tags: [Peter Langner Collection 2016]
 Just **$329.99**
 ### 
 
-<a href="https://www.readybrides.com/en/peter-langner-collection-2016/65222-peter-langner-regina.html"><img src="//static.msromantic.com/150726/peter-langner-regina.jpg" alt="Peter Langner REGINA" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/peter-langner-collection-2016/65222-peter-langner-regina.html"><img src="//static.msromantic.com/150726/peter-langner-regina.jpg" alt="Peter Langner REGINA" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/peter-langner-collection-2016/65222-peter-langner-regina.html](https://www.readybrides.com/en/peter-langner-collection-2016/65222-peter-langner-regina.html)
+Buy it: [https://www.antebrands.com/en/peter-langner-collection-2016/65222-peter-langner-regina.html](https://www.antebrands.com/en/peter-langner-collection-2016/65222-peter-langner-regina.html)

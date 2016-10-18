@@ -9,7 +9,7 @@ tags: [Christos Spring 2015]
 Just **$359.99**
 ### 
 
-<a href="https://www.readybrides.com/en/christos-spring-2015/61527-christos-simona.html"><img src="//static.msromantic.com/142560/christos-simona.jpg" alt="Christos Simona" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/christos-spring-2015/61527-christos-simona.html"><img src="//static.msromantic.com/142560/christos-simona.jpg" alt="Christos Simona" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/christos-spring-2015/61527-christos-simona.html](https://www.readybrides.com/en/christos-spring-2015/61527-christos-simona.html)
+Buy it: [https://www.antebrands.com/en/christos-spring-2015/61527-christos-simona.html](https://www.antebrands.com/en/christos-spring-2015/61527-christos-simona.html)

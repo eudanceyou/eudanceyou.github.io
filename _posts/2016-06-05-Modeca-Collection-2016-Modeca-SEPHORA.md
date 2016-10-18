@@ -9,9 +9,9 @@ tags: [Modeca Collection 2016]
 Just **$379.99**
 ### 
 
-<a href="https://www.readybrides.com/en/modeca-collection-2016/63914-modeca-sephora.html"><img src="//static.msromantic.com/147542/modeca-sephora.jpg" alt="Modeca SEPHORA" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/modeca-collection-2016/63914-modeca-sephora.html"><img src="//static.msromantic.com/147542/modeca-sephora.jpg" alt="Modeca SEPHORA" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/modeca-collection-2016/63914-modeca-sephora.html"><img src="//static.msromantic.com/147543/modeca-sephora.jpg" alt="Modeca SEPHORA" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/modeca-collection-2016/63914-modeca-sephora.html"><img src="//static.msromantic.com/147544/modeca-sephora.jpg" alt="Modeca SEPHORA" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/modeca-collection-2016/63914-modeca-sephora.html"><img src="//static.msromantic.com/147541/modeca-sephora.jpg" alt="Modeca SEPHORA" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/modeca-collection-2016/63914-modeca-sephora.html](https://www.readybrides.com/en/modeca-collection-2016/63914-modeca-sephora.html)
+<!-- break --><a href="https://www.antebrands.com/en/modeca-collection-2016/63914-modeca-sephora.html"><img src="//static.msromantic.com/147543/modeca-sephora.jpg" alt="Modeca SEPHORA" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/modeca-collection-2016/63914-modeca-sephora.html"><img src="//static.msromantic.com/147544/modeca-sephora.jpg" alt="Modeca SEPHORA" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/modeca-collection-2016/63914-modeca-sephora.html"><img src="//static.msromantic.com/147541/modeca-sephora.jpg" alt="Modeca SEPHORA" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/modeca-collection-2016/63914-modeca-sephora.html](https://www.antebrands.com/en/modeca-collection-2016/63914-modeca-sephora.html)

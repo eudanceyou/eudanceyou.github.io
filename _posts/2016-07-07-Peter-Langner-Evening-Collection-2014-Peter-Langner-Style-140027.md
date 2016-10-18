@@ -9,7 +9,7 @@ tags: [Peter Langner Evening Collection 2014]
 Just **$359.99**
 ### 
 
-<a href="https://www.readybrides.com/en/peter-langner-evening-collection-2014/65347-peter-langner-style-140027.html"><img src="//static.msromantic.com/151044/peter-langner-style-140027.jpg" alt="Peter Langner Style  140027" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/peter-langner-evening-collection-2014/65347-peter-langner-style-140027.html"><img src="//static.msromantic.com/151044/peter-langner-style-140027.jpg" alt="Peter Langner Style  140027" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/peter-langner-evening-collection-2014/65347-peter-langner-style-140027.html](https://www.readybrides.com/en/peter-langner-evening-collection-2014/65347-peter-langner-style-140027.html)
+Buy it: [https://www.antebrands.com/en/peter-langner-evening-collection-2014/65347-peter-langner-style-140027.html](https://www.antebrands.com/en/peter-langner-evening-collection-2014/65347-peter-langner-style-140027.html)

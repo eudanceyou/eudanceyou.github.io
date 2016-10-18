@@ -9,8 +9,8 @@ tags: [Constantino Haute Couture]
 Just **$339.99**
 ### 
 
-<a href="https://www.readybrides.com/en/constantino-haute-couture/62255-constantino-tania.html"><img src="//static.msromantic.com/144430/constantino-tania.jpg" alt="Constantino Νυφικό Tania" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/constantino-haute-couture/62255-constantino-tania.html"><img src="//static.msromantic.com/144430/constantino-tania.jpg" alt="Constantino Νυφικό Tania" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/constantino-haute-couture/62255-constantino-tania.html"><img src="//static.msromantic.com/144431/constantino-tania.jpg" alt="Constantino Νυφικό Tania" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/constantino-haute-couture/62255-constantino-tania.html"><img src="//static.msromantic.com/144429/constantino-tania.jpg" alt="Constantino Νυφικό Tania" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/constantino-haute-couture/62255-constantino-tania.html](https://www.readybrides.com/en/constantino-haute-couture/62255-constantino-tania.html)
+<!-- break --><a href="https://www.antebrands.com/en/constantino-haute-couture/62255-constantino-tania.html"><img src="//static.msromantic.com/144431/constantino-tania.jpg" alt="Constantino Νυφικό Tania" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/constantino-haute-couture/62255-constantino-tania.html"><img src="//static.msromantic.com/144429/constantino-tania.jpg" alt="Constantino Νυφικό Tania" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/constantino-haute-couture/62255-constantino-tania.html](https://www.antebrands.com/en/constantino-haute-couture/62255-constantino-tania.html)

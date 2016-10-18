@@ -9,7 +9,7 @@ tags: [Rivini  Fall 2016]
 Just **$419.99**
 ### 
 
-<a href="https://www.readybrides.com/en/rivini-fall-2016/65851-rivini-anika.html"><img src="//static.msromantic.com/151855/rivini-anika.jpg" alt="Rivini  Anika" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/rivini-fall-2016/65851-rivini-anika.html"><img src="//static.msromantic.com/151855/rivini-anika.jpg" alt="Rivini  Anika" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/rivini-fall-2016/65851-rivini-anika.html"><img src="//static.msromantic.com/151854/rivini-anika.jpg" alt="Rivini  Anika" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/rivini-fall-2016/65851-rivini-anika.html](https://www.readybrides.com/en/rivini-fall-2016/65851-rivini-anika.html)
+<!-- break --><a href="https://www.antebrands.com/en/rivini-fall-2016/65851-rivini-anika.html"><img src="//static.msromantic.com/151854/rivini-anika.jpg" alt="Rivini  Anika" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/rivini-fall-2016/65851-rivini-anika.html](https://www.antebrands.com/en/rivini-fall-2016/65851-rivini-anika.html)

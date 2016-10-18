@@ -9,7 +9,7 @@ tags: [Christos Signature Styles]
 Just **$289.99**
 ### 
 
-<a href="https://www.readybrides.com/en/christos-signature-styles/61538-christos-fleur.html"><img src="//static.msromantic.com/142579/christos-fleur.jpg" alt="Christos Fleur" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/christos-signature-styles/61538-christos-fleur.html"><img src="//static.msromantic.com/142579/christos-fleur.jpg" alt="Christos Fleur" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/christos-signature-styles/61538-christos-fleur.html](https://www.readybrides.com/en/christos-signature-styles/61538-christos-fleur.html)
+Buy it: [https://www.antebrands.com/en/christos-signature-styles/61538-christos-fleur.html](https://www.antebrands.com/en/christos-signature-styles/61538-christos-fleur.html)

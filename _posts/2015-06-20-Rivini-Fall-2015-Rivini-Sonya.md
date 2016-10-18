@@ -9,7 +9,7 @@ tags: [Rivini  Fall 2015]
 Just **$299.99**
 ### 
 
-<a href="https://www.readybrides.com/en/rivini-fall-2015/65898-rivini-sonya.html"><img src="//static.msromantic.com/151951/rivini-sonya.jpg" alt="Rivini  Sonya" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/rivini-fall-2015/65898-rivini-sonya.html"><img src="//static.msromantic.com/151951/rivini-sonya.jpg" alt="Rivini  Sonya" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/rivini-fall-2015/65898-rivini-sonya.html"><img src="//static.msromantic.com/151950/rivini-sonya.jpg" alt="Rivini  Sonya" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/rivini-fall-2015/65898-rivini-sonya.html](https://www.readybrides.com/en/rivini-fall-2015/65898-rivini-sonya.html)
+<!-- break --><a href="https://www.antebrands.com/en/rivini-fall-2015/65898-rivini-sonya.html"><img src="//static.msromantic.com/151950/rivini-sonya.jpg" alt="Rivini  Sonya" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/rivini-fall-2015/65898-rivini-sonya.html](https://www.antebrands.com/en/rivini-fall-2015/65898-rivini-sonya.html)

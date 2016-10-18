@@ -9,7 +9,7 @@ tags: [Diane Harbridge The Classics]
 Just **$339.99**
 ### 
 
-<a href="https://www.readybrides.com/en/diane-harbridge-the-classics/64238-diane-harbridge-serina.html"><img src="//static.msromantic.com/148511/diane-harbridge-serina.jpg" alt="Diane Harbridge Serina" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/diane-harbridge-the-classics/64238-diane-harbridge-serina.html"><img src="//static.msromantic.com/148511/diane-harbridge-serina.jpg" alt="Diane Harbridge Serina" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/diane-harbridge-the-classics/64238-diane-harbridge-serina.html"><img src="//static.msromantic.com/148510/diane-harbridge-serina.jpg" alt="Diane Harbridge Serina" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/diane-harbridge-the-classics/64238-diane-harbridge-serina.html](https://www.readybrides.com/en/diane-harbridge-the-classics/64238-diane-harbridge-serina.html)
+<!-- break --><a href="https://www.antebrands.com/en/diane-harbridge-the-classics/64238-diane-harbridge-serina.html"><img src="//static.msromantic.com/148510/diane-harbridge-serina.jpg" alt="Diane Harbridge Serina" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/diane-harbridge-the-classics/64238-diane-harbridge-serina.html](https://www.antebrands.com/en/diane-harbridge-the-classics/64238-diane-harbridge-serina.html)

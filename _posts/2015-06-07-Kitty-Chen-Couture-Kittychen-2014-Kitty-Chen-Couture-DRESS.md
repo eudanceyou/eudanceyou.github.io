@@ -9,8 +9,8 @@ tags: [Kitty Chen Couture Kittychen 2014]
 Just **$359.99**
 ### 
 
-<a href="https://www.readybrides.com/en/kitty-chen-couture-kittychen-2014/63550-kitty-chen-couture-dress.html"><img src="//static.msromantic.com/146608/kitty-chen-couture-dress.jpg" alt="Kitty Chen Couture DRESS" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/kitty-chen-couture-kittychen-2014/63550-kitty-chen-couture-dress.html"><img src="//static.msromantic.com/146608/kitty-chen-couture-dress.jpg" alt="Kitty Chen Couture DRESS" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/kitty-chen-couture-kittychen-2014/63550-kitty-chen-couture-dress.html"><img src="//static.msromantic.com/146609/kitty-chen-couture-dress.jpg" alt="Kitty Chen Couture DRESS" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/kitty-chen-couture-kittychen-2014/63550-kitty-chen-couture-dress.html"><img src="//static.msromantic.com/146607/kitty-chen-couture-dress.jpg" alt="Kitty Chen Couture DRESS" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/kitty-chen-couture-kittychen-2014/63550-kitty-chen-couture-dress.html](https://www.readybrides.com/en/kitty-chen-couture-kittychen-2014/63550-kitty-chen-couture-dress.html)
+<!-- break --><a href="https://www.antebrands.com/en/kitty-chen-couture-kittychen-2014/63550-kitty-chen-couture-dress.html"><img src="//static.msromantic.com/146609/kitty-chen-couture-dress.jpg" alt="Kitty Chen Couture DRESS" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/kitty-chen-couture-kittychen-2014/63550-kitty-chen-couture-dress.html"><img src="//static.msromantic.com/146607/kitty-chen-couture-dress.jpg" alt="Kitty Chen Couture DRESS" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/kitty-chen-couture-kittychen-2014/63550-kitty-chen-couture-dress.html](https://www.antebrands.com/en/kitty-chen-couture-kittychen-2014/63550-kitty-chen-couture-dress.html)

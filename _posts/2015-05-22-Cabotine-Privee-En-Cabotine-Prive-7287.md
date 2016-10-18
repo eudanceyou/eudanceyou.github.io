@@ -9,7 +9,7 @@ tags: [Cabotine Privee En]
 Just **$449.99**
 ### 
 
-<a href="https://www.readybrides.com/en/cabotine-privee-en/61666-cabotine-privee-7287.html"><img src="//static.msromantic.com/142888/cabotine-privee-7287.jpg" alt="Cabotine Privée 7287" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/cabotine-privee-en/61666-cabotine-privee-7287.html"><img src="//static.msromantic.com/142888/cabotine-privee-7287.jpg" alt="Cabotine Privée 7287" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/cabotine-privee-en/61666-cabotine-privee-7287.html](https://www.readybrides.com/en/cabotine-privee-en/61666-cabotine-privee-7287.html)
+Buy it: [https://www.antebrands.com/en/cabotine-privee-en/61666-cabotine-privee-7287.html](https://www.antebrands.com/en/cabotine-privee-en/61666-cabotine-privee-7287.html)

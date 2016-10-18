@@ -9,7 +9,7 @@ tags: [Landa Designs Social Occasion Dresses]
 Just **$389.99**
 ### 
 
-<a href="https://www.readybrides.com/en/landa-designs-social-occasion-dresses/60647-landa-designs-s789.html"><img src="//static.msromantic.com/141188/landa-designs-s789.jpg" alt="Landa Designs S789" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/landa-designs-social-occasion-dresses/60647-landa-designs-s789.html"><img src="//static.msromantic.com/141188/landa-designs-s789.jpg" alt="Landa Designs S789" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/landa-designs-social-occasion-dresses/60647-landa-designs-s789.html"><img src="//static.msromantic.com/141187/landa-designs-s789.jpg" alt="Landa Designs S789" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/landa-designs-social-occasion-dresses/60647-landa-designs-s789.html](https://www.readybrides.com/en/landa-designs-social-occasion-dresses/60647-landa-designs-s789.html)
+<!-- break --><a href="https://www.antebrands.com/en/landa-designs-social-occasion-dresses/60647-landa-designs-s789.html"><img src="//static.msromantic.com/141187/landa-designs-s789.jpg" alt="Landa Designs S789" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/landa-designs-social-occasion-dresses/60647-landa-designs-s789.html](https://www.antebrands.com/en/landa-designs-social-occasion-dresses/60647-landa-designs-s789.html)

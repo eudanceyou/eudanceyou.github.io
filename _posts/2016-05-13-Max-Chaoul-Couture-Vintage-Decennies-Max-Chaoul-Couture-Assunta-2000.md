@@ -9,7 +9,7 @@ tags: [Max Chaoul Couture Vintage Decennies]
 Just **$309.99**
 ### 
 
-<a href="https://www.readybrides.com/en/max-chaoul-couture-vintage-decennies/63891-max-chaoul-couture-assunta-2000.html"><img src="//static.msromantic.com/147456/max-chaoul-couture-assunta-2000.jpg" alt="Max Chaoul Couture Assunta - 2000" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/max-chaoul-couture-vintage-decennies/63891-max-chaoul-couture-assunta-2000.html"><img src="//static.msromantic.com/147456/max-chaoul-couture-assunta-2000.jpg" alt="Max Chaoul Couture Assunta - 2000" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/max-chaoul-couture-vintage-decennies/63891-max-chaoul-couture-assunta-2000.html](https://www.readybrides.com/en/max-chaoul-couture-vintage-decennies/63891-max-chaoul-couture-assunta-2000.html)
+Buy it: [https://www.antebrands.com/en/max-chaoul-couture-vintage-decennies/63891-max-chaoul-couture-assunta-2000.html](https://www.antebrands.com/en/max-chaoul-couture-vintage-decennies/63891-max-chaoul-couture-assunta-2000.html)

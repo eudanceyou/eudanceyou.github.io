@@ -9,7 +9,7 @@ tags: [Cabotine Other Collections Cocktail]
 Just **$279.99**
 ### 
 
-<a href="https://www.readybrides.com/en/cabotine-other-collections-cocktail/61790-cabotine-collection-6843.html"><img src="//static.msromantic.com/143066/cabotine-collection-6843.jpg" alt="Cabotine Collection 6843" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/cabotine-other-collections-cocktail/61790-cabotine-collection-6843.html"><img src="//static.msromantic.com/143066/cabotine-collection-6843.jpg" alt="Cabotine Collection 6843" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/cabotine-other-collections-cocktail/61790-cabotine-collection-6843.html](https://www.readybrides.com/en/cabotine-other-collections-cocktail/61790-cabotine-collection-6843.html)
+Buy it: [https://www.antebrands.com/en/cabotine-other-collections-cocktail/61790-cabotine-collection-6843.html](https://www.antebrands.com/en/cabotine-other-collections-cocktail/61790-cabotine-collection-6843.html)

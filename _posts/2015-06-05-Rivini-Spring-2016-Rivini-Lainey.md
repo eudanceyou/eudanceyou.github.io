@@ -9,7 +9,7 @@ tags: [Rivini  Spring 2016]
 Just **$359.99**
 ### 
 
-<a href="https://www.readybrides.com/en/rivini-spring-2016/65883-rivini-lainey.html"><img src="//static.msromantic.com/151919/rivini-lainey.jpg" alt="Rivini  Lainey" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/rivini-spring-2016/65883-rivini-lainey.html"><img src="//static.msromantic.com/151919/rivini-lainey.jpg" alt="Rivini  Lainey" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/rivini-spring-2016/65883-rivini-lainey.html"><img src="//static.msromantic.com/151918/rivini-lainey.jpg" alt="Rivini  Lainey" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/rivini-spring-2016/65883-rivini-lainey.html](https://www.readybrides.com/en/rivini-spring-2016/65883-rivini-lainey.html)
+<!-- break --><a href="https://www.antebrands.com/en/rivini-spring-2016/65883-rivini-lainey.html"><img src="//static.msromantic.com/151918/rivini-lainey.jpg" alt="Rivini  Lainey" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/rivini-spring-2016/65883-rivini-lainey.html](https://www.antebrands.com/en/rivini-spring-2016/65883-rivini-lainey.html)

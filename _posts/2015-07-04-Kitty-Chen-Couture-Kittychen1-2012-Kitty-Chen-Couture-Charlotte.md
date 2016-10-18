@@ -9,7 +9,7 @@ tags: [Kitty Chen Couture Kittychen1 2012]
 Just **$339.99**
 ### 
 
-<a href="https://www.readybrides.com/en/kitty-chen-couture-kittychen1-2012/63577-kitty-chen-couture-charlotte.html"><img src="//static.msromantic.com/146665/kitty-chen-couture-charlotte.jpg" alt="Kitty Chen Couture Charlotte" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/kitty-chen-couture-kittychen1-2012/63577-kitty-chen-couture-charlotte.html"><img src="//static.msromantic.com/146665/kitty-chen-couture-charlotte.jpg" alt="Kitty Chen Couture Charlotte" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/kitty-chen-couture-kittychen1-2012/63577-kitty-chen-couture-charlotte.html"><img src="//static.msromantic.com/146664/kitty-chen-couture-charlotte.jpg" alt="Kitty Chen Couture Charlotte" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/kitty-chen-couture-kittychen1-2012/63577-kitty-chen-couture-charlotte.html](https://www.readybrides.com/en/kitty-chen-couture-kittychen1-2012/63577-kitty-chen-couture-charlotte.html)
+<!-- break --><a href="https://www.antebrands.com/en/kitty-chen-couture-kittychen1-2012/63577-kitty-chen-couture-charlotte.html"><img src="//static.msromantic.com/146664/kitty-chen-couture-charlotte.jpg" alt="Kitty Chen Couture Charlotte" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/kitty-chen-couture-kittychen1-2012/63577-kitty-chen-couture-charlotte.html](https://www.antebrands.com/en/kitty-chen-couture-kittychen1-2012/63577-kitty-chen-couture-charlotte.html)

@@ -9,7 +9,7 @@ tags: [Naomi Neoh]
 Just **$249.99**
 ###      
 <table><tr><td>BRANDS</td><td>Naomi Neoh</td></tr></table>
-<a href="https://www.readybrides.com/en/naomi-neoh/64243-naomi-neoh-primrose.html"><img src="//static.msromantic.com/148521/naomi-neoh-primrose.jpg" alt="Naomi Neoh Primrose" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/naomi-neoh/64243-naomi-neoh-primrose.html"><img src="//static.msromantic.com/148521/naomi-neoh-primrose.jpg" alt="Naomi Neoh Primrose" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/naomi-neoh/64243-naomi-neoh-primrose.html](https://www.readybrides.com/en/naomi-neoh/64243-naomi-neoh-primrose.html)
+Buy it: [https://www.antebrands.com/en/naomi-neoh/64243-naomi-neoh-primrose.html](https://www.antebrands.com/en/naomi-neoh/64243-naomi-neoh-primrose.html)

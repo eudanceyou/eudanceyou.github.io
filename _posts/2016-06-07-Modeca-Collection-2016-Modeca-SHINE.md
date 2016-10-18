@@ -9,10 +9,10 @@ tags: [Modeca Collection 2016]
 Just **$399.99**
 ### 
 
-<a href="https://www.readybrides.com/en/modeca-collection-2016/63916-modeca-shine.html"><img src="//static.msromantic.com/147550/modeca-shine.jpg" alt="Modeca SHINE" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/modeca-collection-2016/63916-modeca-shine.html"><img src="//static.msromantic.com/147550/modeca-shine.jpg" alt="Modeca SHINE" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/modeca-collection-2016/63916-modeca-shine.html"><img src="//static.msromantic.com/147551/modeca-shine.jpg" alt="Modeca SHINE" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/modeca-collection-2016/63916-modeca-shine.html"><img src="//static.msromantic.com/147552/modeca-shine.jpg" alt="Modeca SHINE" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/modeca-collection-2016/63916-modeca-shine.html"><img src="//static.msromantic.com/147553/modeca-shine.jpg" alt="Modeca SHINE" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/modeca-collection-2016/63916-modeca-shine.html"><img src="//static.msromantic.com/147549/modeca-shine.jpg" alt="Modeca SHINE" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/modeca-collection-2016/63916-modeca-shine.html](https://www.readybrides.com/en/modeca-collection-2016/63916-modeca-shine.html)
+<!-- break --><a href="https://www.antebrands.com/en/modeca-collection-2016/63916-modeca-shine.html"><img src="//static.msromantic.com/147551/modeca-shine.jpg" alt="Modeca SHINE" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/modeca-collection-2016/63916-modeca-shine.html"><img src="//static.msromantic.com/147552/modeca-shine.jpg" alt="Modeca SHINE" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/modeca-collection-2016/63916-modeca-shine.html"><img src="//static.msromantic.com/147553/modeca-shine.jpg" alt="Modeca SHINE" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/modeca-collection-2016/63916-modeca-shine.html"><img src="//static.msromantic.com/147549/modeca-shine.jpg" alt="Modeca SHINE" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/modeca-collection-2016/63916-modeca-shine.html](https://www.antebrands.com/en/modeca-collection-2016/63916-modeca-shine.html)

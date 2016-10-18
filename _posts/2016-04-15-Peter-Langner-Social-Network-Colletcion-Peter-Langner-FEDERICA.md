@@ -9,7 +9,7 @@ tags: [Peter Langner Social Network Colletcion]
 Just **$389.99**
 ### 
 
-<a href="https://www.readybrides.com/en/peter-langner-social-network-colletcion/65264-peter-langner-federica.html"><img src="//static.msromantic.com/150831/peter-langner-federica.jpg" alt="Peter Langner FEDERICA" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/peter-langner-social-network-colletcion/65264-peter-langner-federica.html"><img src="//static.msromantic.com/150831/peter-langner-federica.jpg" alt="Peter Langner FEDERICA" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/peter-langner-social-network-colletcion/65264-peter-langner-federica.html](https://www.readybrides.com/en/peter-langner-social-network-colletcion/65264-peter-langner-federica.html)
+Buy it: [https://www.antebrands.com/en/peter-langner-social-network-colletcion/65264-peter-langner-federica.html](https://www.antebrands.com/en/peter-langner-social-network-colletcion/65264-peter-langner-federica.html)

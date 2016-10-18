@@ -9,7 +9,7 @@ tags: [Hilary Morgan Bridal]
 Just **$269.99**
 ### 
 
-<a href="https://www.readybrides.com/en/hilary-morgan-bridal/62797-hilary-morgan-bridal-style-40712.html"><img src="//static.msromantic.com/145566/hilary-morgan-bridal-style-40712.jpg" alt="Hilary Morgan Bridal Style 40712" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/hilary-morgan-bridal/62797-hilary-morgan-bridal-style-40712.html"><img src="//static.msromantic.com/145566/hilary-morgan-bridal-style-40712.jpg" alt="Hilary Morgan Bridal Style 40712" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/hilary-morgan-bridal/62797-hilary-morgan-bridal-style-40712.html](https://www.readybrides.com/en/hilary-morgan-bridal/62797-hilary-morgan-bridal-style-40712.html)
+Buy it: [https://www.antebrands.com/en/hilary-morgan-bridal/62797-hilary-morgan-bridal-style-40712.html](https://www.antebrands.com/en/hilary-morgan-bridal/62797-hilary-morgan-bridal-style-40712.html)

@@ -9,7 +9,7 @@ tags: [Little People]
 Just **$189.99**
 ###      
 <table><tr><td>BRANDS</td><td>Little People</td></tr></table>
-<a href="https://www.readybrides.com/en/little-people/62725-little-people-style-80460.html"><img src="//static.msromantic.com/145494/little-people-style-80460.jpg" alt="Little People Style 80460" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/little-people/62725-little-people-style-80460.html"><img src="//static.msromantic.com/145494/little-people-style-80460.jpg" alt="Little People Style 80460" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/little-people/62725-little-people-style-80460.html](https://www.readybrides.com/en/little-people/62725-little-people-style-80460.html)
+Buy it: [https://www.antebrands.com/en/little-people/62725-little-people-style-80460.html](https://www.antebrands.com/en/little-people/62725-little-people-style-80460.html)

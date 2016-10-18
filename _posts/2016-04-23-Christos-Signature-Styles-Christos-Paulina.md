@@ -9,7 +9,7 @@ tags: [Christos Signature Styles]
 Just **$309.99**
 ### 
 
-<a href="https://www.readybrides.com/en/christos-signature-styles/61536-christos-paulina.html"><img src="//static.msromantic.com/142577/christos-paulina.jpg" alt="Christos Paulina" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/christos-signature-styles/61536-christos-paulina.html"><img src="//static.msromantic.com/142577/christos-paulina.jpg" alt="Christos Paulina" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/christos-signature-styles/61536-christos-paulina.html"><img src="//static.msromantic.com/142576/christos-paulina.jpg" alt="Christos Paulina" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/christos-signature-styles/61536-christos-paulina.html](https://www.readybrides.com/en/christos-signature-styles/61536-christos-paulina.html)
+<!-- break --><a href="https://www.antebrands.com/en/christos-signature-styles/61536-christos-paulina.html"><img src="//static.msromantic.com/142576/christos-paulina.jpg" alt="Christos Paulina" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/christos-signature-styles/61536-christos-paulina.html](https://www.antebrands.com/en/christos-signature-styles/61536-christos-paulina.html)

@@ -9,7 +9,7 @@ tags: [Rivini  Fall 2016]
 Just **$309.99**
 ### 
 
-<a href="https://www.readybrides.com/en/rivini-fall-2016/65859-rivini-delaney.html"><img src="//static.msromantic.com/151871/rivini-delaney.jpg" alt="Rivini  Delaney" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/rivini-fall-2016/65859-rivini-delaney.html"><img src="//static.msromantic.com/151871/rivini-delaney.jpg" alt="Rivini  Delaney" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/rivini-fall-2016/65859-rivini-delaney.html"><img src="//static.msromantic.com/151870/rivini-delaney.jpg" alt="Rivini  Delaney" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/rivini-fall-2016/65859-rivini-delaney.html](https://www.readybrides.com/en/rivini-fall-2016/65859-rivini-delaney.html)
+<!-- break --><a href="https://www.antebrands.com/en/rivini-fall-2016/65859-rivini-delaney.html"><img src="//static.msromantic.com/151870/rivini-delaney.jpg" alt="Rivini  Delaney" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/rivini-fall-2016/65859-rivini-delaney.html](https://www.antebrands.com/en/rivini-fall-2016/65859-rivini-delaney.html)

@@ -9,7 +9,7 @@ tags: [Landa Designs Modest Bridesmaid's Dresses]
 Just **$199.99**
 ### 
 
-<a href="https://www.readybrides.com/en/landa-designs-modest-bridesmaid-s-dresses/60783-landa-designs-a004.html"><img src="//static.msromantic.com/141443/landa-designs-a004.jpg" alt="Landa Designs A004" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/landa-designs-modest-bridesmaid-s-dresses/60783-landa-designs-a004.html"><img src="//static.msromantic.com/141443/landa-designs-a004.jpg" alt="Landa Designs A004" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/landa-designs-modest-bridesmaid-s-dresses/60783-landa-designs-a004.html](https://www.readybrides.com/en/landa-designs-modest-bridesmaid-s-dresses/60783-landa-designs-a004.html)
+Buy it: [https://www.antebrands.com/en/landa-designs-modest-bridesmaid-s-dresses/60783-landa-designs-a004.html](https://www.antebrands.com/en/landa-designs-modest-bridesmaid-s-dresses/60783-landa-designs-a004.html)

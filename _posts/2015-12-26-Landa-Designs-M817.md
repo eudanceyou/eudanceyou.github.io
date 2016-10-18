@@ -9,7 +9,7 @@ tags: [Landa ]
 Just **$149.99**
 ### 
 
-<a href="https://www.readybrides.com/en/landa-/60483-landa-designs-m817.html"><img src="//static.msromantic.com/140881/landa-designs-m817.jpg" alt="Landa Designs M817" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/landa-/60483-landa-designs-m817.html"><img src="//static.msromantic.com/140881/landa-designs-m817.jpg" alt="Landa Designs M817" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/landa-/60483-landa-designs-m817.html](https://www.readybrides.com/en/landa-/60483-landa-designs-m817.html)
+Buy it: [https://www.antebrands.com/en/landa-/60483-landa-designs-m817.html](https://www.antebrands.com/en/landa-/60483-landa-designs-m817.html)

@@ -9,7 +9,7 @@ tags: [Priam Paris Pondichery by PRIAM]
 Just **$359.99**
 ### 
 
-<a href="https://www.readybrides.com/en/priam-paris-pondichery-by-priam/65775-priam-limoges.html"><img src="//static.msromantic.com/151692/priam-limoges.jpg" alt="Priam LIMOGES" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/priam-paris-pondichery-by-priam/65775-priam-limoges.html"><img src="//static.msromantic.com/151692/priam-limoges.jpg" alt="Priam LIMOGES" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/priam-paris-pondichery-by-priam/65775-priam-limoges.html](https://www.readybrides.com/en/priam-paris-pondichery-by-priam/65775-priam-limoges.html)
+Buy it: [https://www.antebrands.com/en/priam-paris-pondichery-by-priam/65775-priam-limoges.html](https://www.antebrands.com/en/priam-paris-pondichery-by-priam/65775-priam-limoges.html)

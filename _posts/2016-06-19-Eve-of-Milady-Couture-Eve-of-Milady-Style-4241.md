@@ -9,7 +9,7 @@ tags: [Eve of Milady Couture]
 Just **$439.99**
 ### 
 
-<a href="https://www.readybrides.com/en/eve-of-milady-couture/62527-eve-of-milady-style-4241.html"><img src="//static.msromantic.com/145058/eve-of-milady-style-4241.jpg" alt="Eve of Milady Style 4241" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/eve-of-milady-couture/62527-eve-of-milady-style-4241.html"><img src="//static.msromantic.com/145058/eve-of-milady-style-4241.jpg" alt="Eve of Milady Style 4241" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/eve-of-milady-couture/62527-eve-of-milady-style-4241.html](https://www.readybrides.com/en/eve-of-milady-couture/62527-eve-of-milady-style-4241.html)
+Buy it: [https://www.antebrands.com/en/eve-of-milady-couture/62527-eve-of-milady-style-4241.html](https://www.antebrands.com/en/eve-of-milady-couture/62527-eve-of-milady-style-4241.html)

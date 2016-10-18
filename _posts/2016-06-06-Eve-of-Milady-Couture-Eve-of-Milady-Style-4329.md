@@ -9,7 +9,7 @@ tags: [Eve of Milady Couture]
 Just **$339.99**
 ### 
 
-<a href="https://www.readybrides.com/en/eve-of-milady-couture/62514-eve-of-milady-style-4329.html"><img src="//static.msromantic.com/145037/eve-of-milady-style-4329.jpg" alt="Eve of Milady Style 4329" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/eve-of-milady-couture/62514-eve-of-milady-style-4329.html"><img src="//static.msromantic.com/145037/eve-of-milady-style-4329.jpg" alt="Eve of Milady Style 4329" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/eve-of-milady-couture/62514-eve-of-milady-style-4329.html"><img src="//static.msromantic.com/145036/eve-of-milady-style-4329.jpg" alt="Eve of Milady Style 4329" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/eve-of-milady-couture/62514-eve-of-milady-style-4329.html](https://www.readybrides.com/en/eve-of-milady-couture/62514-eve-of-milady-style-4329.html)
+<!-- break --><a href="https://www.antebrands.com/en/eve-of-milady-couture/62514-eve-of-milady-style-4329.html"><img src="//static.msromantic.com/145036/eve-of-milady-style-4329.jpg" alt="Eve of Milady Style 4329" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/eve-of-milady-couture/62514-eve-of-milady-style-4329.html](https://www.antebrands.com/en/eve-of-milady-couture/62514-eve-of-milady-style-4329.html)

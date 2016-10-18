@@ -9,7 +9,7 @@ tags: [Priam Princess by Priam]
 Just **$349.99**
 ### 
 
-<a href="https://www.readybrides.com/en/priam-princess-by-priam/65725-priam-emeraude.html"><img src="//static.msromantic.com/151642/priam-emeraude.jpg" alt="Priam EMERAUDE" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/priam-princess-by-priam/65725-priam-emeraude.html"><img src="//static.msromantic.com/151642/priam-emeraude.jpg" alt="Priam EMERAUDE" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/priam-princess-by-priam/65725-priam-emeraude.html](https://www.readybrides.com/en/priam-princess-by-priam/65725-priam-emeraude.html)
+Buy it: [https://www.antebrands.com/en/priam-princess-by-priam/65725-priam-emeraude.html](https://www.antebrands.com/en/priam-princess-by-priam/65725-priam-emeraude.html)

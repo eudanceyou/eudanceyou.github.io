@@ -9,7 +9,7 @@ tags: [Kitty Chen Couture Kittychen 2015]
 Just **$379.99**
 ### 
 
-<a href="https://www.readybrides.com/en/kitty-chen-couture-kittychen-2015/63487-kitty-chen-couture-doris.html"><img src="//static.msromantic.com/146446/kitty-chen-couture-doris.jpg" alt="Kitty Chen Couture Doris" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/kitty-chen-couture-kittychen-2015/63487-kitty-chen-couture-doris.html"><img src="//static.msromantic.com/146446/kitty-chen-couture-doris.jpg" alt="Kitty Chen Couture Doris" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/kitty-chen-couture-kittychen-2015/63487-kitty-chen-couture-doris.html"><img src="//static.msromantic.com/146445/kitty-chen-couture-doris.jpg" alt="Kitty Chen Couture Doris" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/kitty-chen-couture-kittychen-2015/63487-kitty-chen-couture-doris.html](https://www.readybrides.com/en/kitty-chen-couture-kittychen-2015/63487-kitty-chen-couture-doris.html)
+<!-- break --><a href="https://www.antebrands.com/en/kitty-chen-couture-kittychen-2015/63487-kitty-chen-couture-doris.html"><img src="//static.msromantic.com/146445/kitty-chen-couture-doris.jpg" alt="Kitty Chen Couture Doris" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/kitty-chen-couture-kittychen-2015/63487-kitty-chen-couture-doris.html](https://www.antebrands.com/en/kitty-chen-couture-kittychen-2015/63487-kitty-chen-couture-doris.html)

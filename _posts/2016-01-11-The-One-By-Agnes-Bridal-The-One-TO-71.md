@@ -9,7 +9,7 @@ tags: [The One By Agnes Bridal]
 Just **$309.99**
 ### 
 
-<a href="https://www.readybrides.com/en/the-one-by-agnes-bridal/60966-the-one-to-71.html"><img src="//static.msromantic.com/141660/the-one-to-71.jpg" alt="The One TO - 71" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/the-one-by-agnes-bridal/60966-the-one-to-71.html"><img src="//static.msromantic.com/141660/the-one-to-71.jpg" alt="The One TO - 71" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/the-one-by-agnes-bridal/60966-the-one-to-71.html](https://www.readybrides.com/en/the-one-by-agnes-bridal/60966-the-one-to-71.html)
+Buy it: [https://www.antebrands.com/en/the-one-by-agnes-bridal/60966-the-one-to-71.html](https://www.antebrands.com/en/the-one-by-agnes-bridal/60966-the-one-to-71.html)

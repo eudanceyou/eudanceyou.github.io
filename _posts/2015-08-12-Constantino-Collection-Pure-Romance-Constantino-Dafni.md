@@ -9,8 +9,8 @@ tags: [Constantino Collection Pure Romance]
 Just **$369.99**
 ### 
 
-<a href="https://www.readybrides.com/en/constantino-collection-pure-romance/62215-constantino-dafni.html"><img src="//static.msromantic.com/144319/constantino-dafni.jpg" alt="Constantino Νυφικό Dafni" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/constantino-collection-pure-romance/62215-constantino-dafni.html"><img src="//static.msromantic.com/144319/constantino-dafni.jpg" alt="Constantino Νυφικό Dafni" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/constantino-collection-pure-romance/62215-constantino-dafni.html"><img src="//static.msromantic.com/144320/constantino-dafni.jpg" alt="Constantino Νυφικό Dafni" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/constantino-collection-pure-romance/62215-constantino-dafni.html"><img src="//static.msromantic.com/144318/constantino-dafni.jpg" alt="Constantino Νυφικό Dafni" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/constantino-collection-pure-romance/62215-constantino-dafni.html](https://www.readybrides.com/en/constantino-collection-pure-romance/62215-constantino-dafni.html)
+<!-- break --><a href="https://www.antebrands.com/en/constantino-collection-pure-romance/62215-constantino-dafni.html"><img src="//static.msromantic.com/144320/constantino-dafni.jpg" alt="Constantino Νυφικό Dafni" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/constantino-collection-pure-romance/62215-constantino-dafni.html"><img src="//static.msromantic.com/144318/constantino-dafni.jpg" alt="Constantino Νυφικό Dafni" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/constantino-collection-pure-romance/62215-constantino-dafni.html](https://www.antebrands.com/en/constantino-collection-pure-romance/62215-constantino-dafni.html)

@@ -9,7 +9,7 @@ tags: [Kitty Chen Couture Ivoire Los Angeles 2014]
 Just **$319.99**
 ### 
 
-<a href="https://www.readybrides.com/en/kitty-chen-couture-ivoire-los-angeles-2014/63531-kitty-chen-couture-georgia.html"><img src="//static.msromantic.com/146565/kitty-chen-couture-georgia.jpg" alt="Kitty Chen Couture Georgia" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/kitty-chen-couture-ivoire-los-angeles-2014/63531-kitty-chen-couture-georgia.html"><img src="//static.msromantic.com/146565/kitty-chen-couture-georgia.jpg" alt="Kitty Chen Couture Georgia" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/kitty-chen-couture-ivoire-los-angeles-2014/63531-kitty-chen-couture-georgia.html"><img src="//static.msromantic.com/146564/kitty-chen-couture-georgia.jpg" alt="Kitty Chen Couture Georgia" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/kitty-chen-couture-ivoire-los-angeles-2014/63531-kitty-chen-couture-georgia.html](https://www.readybrides.com/en/kitty-chen-couture-ivoire-los-angeles-2014/63531-kitty-chen-couture-georgia.html)
+<!-- break --><a href="https://www.antebrands.com/en/kitty-chen-couture-ivoire-los-angeles-2014/63531-kitty-chen-couture-georgia.html"><img src="//static.msromantic.com/146564/kitty-chen-couture-georgia.jpg" alt="Kitty Chen Couture Georgia" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/kitty-chen-couture-ivoire-los-angeles-2014/63531-kitty-chen-couture-georgia.html](https://www.antebrands.com/en/kitty-chen-couture-ivoire-los-angeles-2014/63531-kitty-chen-couture-georgia.html)

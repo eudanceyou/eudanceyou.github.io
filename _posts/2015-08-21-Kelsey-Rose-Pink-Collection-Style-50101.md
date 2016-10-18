@@ -9,7 +9,7 @@ tags: [Kelsey Rose Pink Collection]
 Just **$229.99**
 ### 
 
-<a href="https://www.readybrides.com/en/kelsey-rose-pink-collection/63625-kelsey-rose-pink-collection-style-50101.html"><img src="//static.msromantic.com/146773/kelsey-rose-pink-collection-style-50101.jpg" alt="Kelsey Rose Pink Collection Style 50101" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/kelsey-rose-pink-collection/63625-kelsey-rose-pink-collection-style-50101.html"><img src="//static.msromantic.com/146773/kelsey-rose-pink-collection-style-50101.jpg" alt="Kelsey Rose Pink Collection Style 50101" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/kelsey-rose-pink-collection/63625-kelsey-rose-pink-collection-style-50101.html"><img src="//static.msromantic.com/146772/kelsey-rose-pink-collection-style-50101.jpg" alt="Kelsey Rose Pink Collection Style 50101" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/kelsey-rose-pink-collection/63625-kelsey-rose-pink-collection-style-50101.html](https://www.readybrides.com/en/kelsey-rose-pink-collection/63625-kelsey-rose-pink-collection-style-50101.html)
+<!-- break --><a href="https://www.antebrands.com/en/kelsey-rose-pink-collection/63625-kelsey-rose-pink-collection-style-50101.html"><img src="//static.msromantic.com/146772/kelsey-rose-pink-collection-style-50101.jpg" alt="Kelsey Rose Pink Collection Style 50101" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/kelsey-rose-pink-collection/63625-kelsey-rose-pink-collection-style-50101.html](https://www.antebrands.com/en/kelsey-rose-pink-collection/63625-kelsey-rose-pink-collection-style-50101.html)

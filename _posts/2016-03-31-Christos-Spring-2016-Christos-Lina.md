@@ -9,7 +9,7 @@ tags: [Christos Spring 2016]
 Just **$359.99**
 ### 
 
-<a href="https://www.readybrides.com/en/christos-spring-2016/61513-christos-lina.html"><img src="//static.msromantic.com/142534/christos-lina.jpg" alt="Christos Lina" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/christos-spring-2016/61513-christos-lina.html"><img src="//static.msromantic.com/142534/christos-lina.jpg" alt="Christos Lina" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/christos-spring-2016/61513-christos-lina.html"><img src="//static.msromantic.com/142533/christos-lina.jpg" alt="Christos Lina" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/christos-spring-2016/61513-christos-lina.html](https://www.readybrides.com/en/christos-spring-2016/61513-christos-lina.html)
+<!-- break --><a href="https://www.antebrands.com/en/christos-spring-2016/61513-christos-lina.html"><img src="//static.msromantic.com/142533/christos-lina.jpg" alt="Christos Lina" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/christos-spring-2016/61513-christos-lina.html](https://www.antebrands.com/en/christos-spring-2016/61513-christos-lina.html)

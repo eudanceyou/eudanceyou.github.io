@@ -9,7 +9,7 @@ tags: [Cabotine Other Collections Cocktail]
 Just **$349.99**
 ### 
 
-<a href="https://www.readybrides.com/en/cabotine-other-collections-cocktail/61825-cabotine-donna-6811.html"><img src="//static.msromantic.com/143125/cabotine-donna-6811.jpg" alt="Cabotine Donna 6811" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/cabotine-other-collections-cocktail/61825-cabotine-donna-6811.html"><img src="//static.msromantic.com/143125/cabotine-donna-6811.jpg" alt="Cabotine Donna 6811" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/cabotine-other-collections-cocktail/61825-cabotine-donna-6811.html](https://www.readybrides.com/en/cabotine-other-collections-cocktail/61825-cabotine-donna-6811.html)
+Buy it: [https://www.antebrands.com/en/cabotine-other-collections-cocktail/61825-cabotine-donna-6811.html](https://www.antebrands.com/en/cabotine-other-collections-cocktail/61825-cabotine-donna-6811.html)

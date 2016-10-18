@@ -9,7 +9,7 @@ tags: [Christos Signature Styles]
 Just **$359.99**
 ### 
 
-<a href="https://www.readybrides.com/en/christos-signature-styles/61539-christos-isadora.html"><img src="//static.msromantic.com/142581/christos-isadora.jpg" alt="Christos Isadora" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/christos-signature-styles/61539-christos-isadora.html"><img src="//static.msromantic.com/142581/christos-isadora.jpg" alt="Christos Isadora" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/christos-signature-styles/61539-christos-isadora.html"><img src="//static.msromantic.com/142580/christos-isadora.jpg" alt="Christos Isadora" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/christos-signature-styles/61539-christos-isadora.html](https://www.readybrides.com/en/christos-signature-styles/61539-christos-isadora.html)
+<!-- break --><a href="https://www.antebrands.com/en/christos-signature-styles/61539-christos-isadora.html"><img src="//static.msromantic.com/142580/christos-isadora.jpg" alt="Christos Isadora" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/christos-signature-styles/61539-christos-isadora.html](https://www.antebrands.com/en/christos-signature-styles/61539-christos-isadora.html)

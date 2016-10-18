@@ -9,7 +9,7 @@ tags: [The One Collection 2016]
 Just **$389.99**
 ### 
 
-<a href="https://www.readybrides.com/en/the-one-collection-2016/60866-the-one-to-547.html"><img src="//static.msromantic.com/141560/the-one-to-547.jpg" alt="The One TO - 547" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/the-one-collection-2016/60866-the-one-to-547.html"><img src="//static.msromantic.com/141560/the-one-to-547.jpg" alt="The One TO - 547" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/the-one-collection-2016/60866-the-one-to-547.html](https://www.readybrides.com/en/the-one-collection-2016/60866-the-one-to-547.html)
+Buy it: [https://www.antebrands.com/en/the-one-collection-2016/60866-the-one-to-547.html](https://www.antebrands.com/en/the-one-collection-2016/60866-the-one-to-547.html)

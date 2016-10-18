@@ -9,7 +9,7 @@ tags: [Rivini  Fall 2016]
 Just **$329.99**
 ### 
 
-<a href="https://www.readybrides.com/en/rivini-fall-2016/65864-rivini-marni.html"><img src="//static.msromantic.com/151881/rivini-marni.jpg" alt="Rivini  Marni" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/rivini-fall-2016/65864-rivini-marni.html"><img src="//static.msromantic.com/151881/rivini-marni.jpg" alt="Rivini  Marni" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/rivini-fall-2016/65864-rivini-marni.html"><img src="//static.msromantic.com/151880/rivini-marni.jpg" alt="Rivini  Marni" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/rivini-fall-2016/65864-rivini-marni.html](https://www.readybrides.com/en/rivini-fall-2016/65864-rivini-marni.html)
+<!-- break --><a href="https://www.antebrands.com/en/rivini-fall-2016/65864-rivini-marni.html"><img src="//static.msromantic.com/151880/rivini-marni.jpg" alt="Rivini  Marni" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/rivini-fall-2016/65864-rivini-marni.html](https://www.antebrands.com/en/rivini-fall-2016/65864-rivini-marni.html)

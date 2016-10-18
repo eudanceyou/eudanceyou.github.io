@@ -9,7 +9,7 @@ tags: [Constantino Collection Pure Romance]
 Just **$339.99**
 ### 
 
-<a href="https://www.readybrides.com/en/constantino-collection-pure-romance/62216-constantino-dimitra.html"><img src="//static.msromantic.com/144322/constantino-dimitra.jpg" alt="Constantino Νυφικό Dimitra" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/constantino-collection-pure-romance/62216-constantino-dimitra.html"><img src="//static.msromantic.com/144322/constantino-dimitra.jpg" alt="Constantino Νυφικό Dimitra" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/constantino-collection-pure-romance/62216-constantino-dimitra.html"><img src="//static.msromantic.com/144321/constantino-dimitra.jpg" alt="Constantino Νυφικό Dimitra" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/constantino-collection-pure-romance/62216-constantino-dimitra.html](https://www.readybrides.com/en/constantino-collection-pure-romance/62216-constantino-dimitra.html)
+<!-- break --><a href="https://www.antebrands.com/en/constantino-collection-pure-romance/62216-constantino-dimitra.html"><img src="//static.msromantic.com/144321/constantino-dimitra.jpg" alt="Constantino Νυφικό Dimitra" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/constantino-collection-pure-romance/62216-constantino-dimitra.html](https://www.antebrands.com/en/constantino-collection-pure-romance/62216-constantino-dimitra.html)

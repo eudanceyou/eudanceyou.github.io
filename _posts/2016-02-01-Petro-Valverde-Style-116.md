@@ -9,7 +9,7 @@ tags: [Petro Valverde]
 Just **$339.99**
 ###      
 <table><tr><td>BRANDS</td><td>Petro Valverde</td></tr></table>
-<a href="https://www.readybrides.com/en/petro-valverde/65190-petro-valverde-style-116.html"><img src="//static.msromantic.com/150668/petro-valverde-style-116.jpg" alt="Petro Valverde Style 116" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/petro-valverde/65190-petro-valverde-style-116.html"><img src="//static.msromantic.com/150668/petro-valverde-style-116.jpg" alt="Petro Valverde Style 116" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/petro-valverde/65190-petro-valverde-style-116.html"><img src="//static.msromantic.com/150667/petro-valverde-style-116.jpg" alt="Petro Valverde Style 116" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/petro-valverde/65190-petro-valverde-style-116.html](https://www.readybrides.com/en/petro-valverde/65190-petro-valverde-style-116.html)
+<!-- break --><a href="https://www.antebrands.com/en/petro-valverde/65190-petro-valverde-style-116.html"><img src="//static.msromantic.com/150667/petro-valverde-style-116.jpg" alt="Petro Valverde Style 116" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/petro-valverde/65190-petro-valverde-style-116.html](https://www.antebrands.com/en/petro-valverde/65190-petro-valverde-style-116.html)

@@ -9,7 +9,7 @@ tags: [Cymbeline Paris]
 Just **$329.99**
 ### 
 
-<a href="https://www.readybrides.com/en/cymbeline-paris/62162-cymbeline-amethyste.html"><img src="//static.msromantic.com/144169/cymbeline-amethyste.jpg" alt="Cymbeline Amethyste" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/cymbeline-paris/62162-cymbeline-amethyste.html"><img src="//static.msromantic.com/144169/cymbeline-amethyste.jpg" alt="Cymbeline Amethyste" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/cymbeline-paris/62162-cymbeline-amethyste.html](https://www.readybrides.com/en/cymbeline-paris/62162-cymbeline-amethyste.html)
+Buy it: [https://www.antebrands.com/en/cymbeline-paris/62162-cymbeline-amethyste.html](https://www.antebrands.com/en/cymbeline-paris/62162-cymbeline-amethyste.html)

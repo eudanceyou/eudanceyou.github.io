@@ -9,7 +9,7 @@ tags: [Priam Paris Pondichery by PRIAM]
 Just **$369.99**
 ### 
 
-<a href="https://www.readybrides.com/en/priam-paris-pondichery-by-priam/65778-priam-pessac.html"><img src="//static.msromantic.com/151695/priam-pessac.jpg" alt="Priam PESSAC" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/priam-paris-pondichery-by-priam/65778-priam-pessac.html"><img src="//static.msromantic.com/151695/priam-pessac.jpg" alt="Priam PESSAC" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/priam-paris-pondichery-by-priam/65778-priam-pessac.html](https://www.readybrides.com/en/priam-paris-pondichery-by-priam/65778-priam-pessac.html)
+Buy it: [https://www.antebrands.com/en/priam-paris-pondichery-by-priam/65778-priam-pessac.html](https://www.antebrands.com/en/priam-paris-pondichery-by-priam/65778-priam-pessac.html)

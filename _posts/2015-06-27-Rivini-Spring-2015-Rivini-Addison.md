@@ -9,7 +9,7 @@ tags: [Rivini  Spring 2015]
 Just **$379.99**
 ### 
 
-<a href="https://www.readybrides.com/en/rivini-spring-2015/65905-rivini-addison.html"><img src="//static.msromantic.com/151963/rivini-addison.jpg" alt="Rivini  Addison" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/rivini-spring-2015/65905-rivini-addison.html"><img src="//static.msromantic.com/151963/rivini-addison.jpg" alt="Rivini  Addison" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/rivini-spring-2015/65905-rivini-addison.html](https://www.readybrides.com/en/rivini-spring-2015/65905-rivini-addison.html)
+Buy it: [https://www.antebrands.com/en/rivini-spring-2015/65905-rivini-addison.html](https://www.antebrands.com/en/rivini-spring-2015/65905-rivini-addison.html)

@@ -9,7 +9,7 @@ tags: [Landa Designs Modest Bridesmaid's Dresses]
 Just **$189.99**
 ### 
 
-<a href="https://www.readybrides.com/en/landa-designs-modest-bridesmaid-s-dresses/60733-landa-designs-af151.html"><img src="//static.msromantic.com/141346/landa-designs-af151.jpg" alt="Landa Designs AF151" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/landa-designs-modest-bridesmaid-s-dresses/60733-landa-designs-af151.html"><img src="//static.msromantic.com/141346/landa-designs-af151.jpg" alt="Landa Designs AF151" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/landa-designs-modest-bridesmaid-s-dresses/60733-landa-designs-af151.html"><img src="//static.msromantic.com/141345/landa-designs-af151.jpg" alt="Landa Designs AF151" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/landa-designs-modest-bridesmaid-s-dresses/60733-landa-designs-af151.html](https://www.readybrides.com/en/landa-designs-modest-bridesmaid-s-dresses/60733-landa-designs-af151.html)
+<!-- break --><a href="https://www.antebrands.com/en/landa-designs-modest-bridesmaid-s-dresses/60733-landa-designs-af151.html"><img src="//static.msromantic.com/141345/landa-designs-af151.jpg" alt="Landa Designs AF151" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/landa-designs-modest-bridesmaid-s-dresses/60733-landa-designs-af151.html](https://www.antebrands.com/en/landa-designs-modest-bridesmaid-s-dresses/60733-landa-designs-af151.html)

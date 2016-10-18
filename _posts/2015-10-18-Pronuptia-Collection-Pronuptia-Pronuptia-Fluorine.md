@@ -9,8 +9,8 @@ tags: [Pronuptia Collection Pronuptia]
 Just **$369.99**
 ### 
 
-<a href="https://www.readybrides.com/en/pronuptia-collection-pronuptia/65551-pronuptia-fluorine.html"><img src="//static.msromantic.com/151297/pronuptia-fluorine.jpg" alt="Pronuptia Fluorine" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/pronuptia-collection-pronuptia/65551-pronuptia-fluorine.html"><img src="//static.msromantic.com/151297/pronuptia-fluorine.jpg" alt="Pronuptia Fluorine" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/pronuptia-collection-pronuptia/65551-pronuptia-fluorine.html"><img src="//static.msromantic.com/151298/pronuptia-fluorine.jpg" alt="Pronuptia Fluorine" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/pronuptia-collection-pronuptia/65551-pronuptia-fluorine.html"><img src="//static.msromantic.com/151296/pronuptia-fluorine.jpg" alt="Pronuptia Fluorine" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/pronuptia-collection-pronuptia/65551-pronuptia-fluorine.html](https://www.readybrides.com/en/pronuptia-collection-pronuptia/65551-pronuptia-fluorine.html)
+<!-- break --><a href="https://www.antebrands.com/en/pronuptia-collection-pronuptia/65551-pronuptia-fluorine.html"><img src="//static.msromantic.com/151298/pronuptia-fluorine.jpg" alt="Pronuptia Fluorine" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/pronuptia-collection-pronuptia/65551-pronuptia-fluorine.html"><img src="//static.msromantic.com/151296/pronuptia-fluorine.jpg" alt="Pronuptia Fluorine" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/pronuptia-collection-pronuptia/65551-pronuptia-fluorine.html](https://www.antebrands.com/en/pronuptia-collection-pronuptia/65551-pronuptia-fluorine.html)

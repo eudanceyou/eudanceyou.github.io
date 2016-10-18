@@ -9,7 +9,7 @@ tags: [Priam Princess by Priam]
 Just **$449.99**
 ### 
 
-<a href="https://www.readybrides.com/en/priam-princess-by-priam/65724-priam-diamant.html"><img src="//static.msromantic.com/151641/priam-diamant.jpg" alt="Priam DIAMANT" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/priam-princess-by-priam/65724-priam-diamant.html"><img src="//static.msromantic.com/151641/priam-diamant.jpg" alt="Priam DIAMANT" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/priam-princess-by-priam/65724-priam-diamant.html](https://www.readybrides.com/en/priam-princess-by-priam/65724-priam-diamant.html)
+Buy it: [https://www.antebrands.com/en/priam-princess-by-priam/65724-priam-diamant.html](https://www.antebrands.com/en/priam-princess-by-priam/65724-priam-diamant.html)

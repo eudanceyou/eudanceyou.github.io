@@ -9,7 +9,7 @@ tags: [Diane Harbridge The Classics]
 Just **$439.99**
 ### 
 
-<a href="https://www.readybrides.com/en/diane-harbridge-the-classics/64216-diane-harbridge-chloe.html"><img src="//static.msromantic.com/148457/diane-harbridge-chloe.jpg" alt="Diane Harbridge Chloe" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/diane-harbridge-the-classics/64216-diane-harbridge-chloe.html"><img src="//static.msromantic.com/148457/diane-harbridge-chloe.jpg" alt="Diane Harbridge Chloe" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/diane-harbridge-the-classics/64216-diane-harbridge-chloe.html](https://www.readybrides.com/en/diane-harbridge-the-classics/64216-diane-harbridge-chloe.html)
+Buy it: [https://www.antebrands.com/en/diane-harbridge-the-classics/64216-diane-harbridge-chloe.html](https://www.antebrands.com/en/diane-harbridge-the-classics/64216-diane-harbridge-chloe.html)

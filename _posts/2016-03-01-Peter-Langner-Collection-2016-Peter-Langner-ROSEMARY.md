@@ -9,7 +9,7 @@ tags: [Peter Langner Collection 2016]
 Just **$279.99**
 ### 
 
-<a href="https://www.readybrides.com/en/peter-langner-collection-2016/65219-peter-langner-rosemary.html"><img src="//static.msromantic.com/150720/peter-langner-rosemary.jpg" alt="Peter Langner ROSEMARY" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/peter-langner-collection-2016/65219-peter-langner-rosemary.html"><img src="//static.msromantic.com/150720/peter-langner-rosemary.jpg" alt="Peter Langner ROSEMARY" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/peter-langner-collection-2016/65219-peter-langner-rosemary.html"><img src="//static.msromantic.com/150719/peter-langner-rosemary.jpg" alt="Peter Langner ROSEMARY" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/peter-langner-collection-2016/65219-peter-langner-rosemary.html](https://www.readybrides.com/en/peter-langner-collection-2016/65219-peter-langner-rosemary.html)
+<!-- break --><a href="https://www.antebrands.com/en/peter-langner-collection-2016/65219-peter-langner-rosemary.html"><img src="//static.msromantic.com/150719/peter-langner-rosemary.jpg" alt="Peter Langner ROSEMARY" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/peter-langner-collection-2016/65219-peter-langner-rosemary.html](https://www.antebrands.com/en/peter-langner-collection-2016/65219-peter-langner-rosemary.html)

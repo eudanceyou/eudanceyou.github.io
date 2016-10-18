@@ -9,8 +9,8 @@ tags: [Pronuptia Collection Pronuptia]
 Just **$289.99**
 ### 
 
-<a href="https://www.readybrides.com/en/pronuptia-collection-pronuptia/65569-pronuptia-esmeralda.html"><img src="//static.msromantic.com/151351/pronuptia-esmeralda.jpg" alt="Pronuptia Esmeralda" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/pronuptia-collection-pronuptia/65569-pronuptia-esmeralda.html"><img src="//static.msromantic.com/151351/pronuptia-esmeralda.jpg" alt="Pronuptia Esmeralda" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/pronuptia-collection-pronuptia/65569-pronuptia-esmeralda.html"><img src="//static.msromantic.com/151352/pronuptia-esmeralda.jpg" alt="Pronuptia Esmeralda" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/pronuptia-collection-pronuptia/65569-pronuptia-esmeralda.html"><img src="//static.msromantic.com/151350/pronuptia-esmeralda.jpg" alt="Pronuptia Esmeralda" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/pronuptia-collection-pronuptia/65569-pronuptia-esmeralda.html](https://www.readybrides.com/en/pronuptia-collection-pronuptia/65569-pronuptia-esmeralda.html)
+<!-- break --><a href="https://www.antebrands.com/en/pronuptia-collection-pronuptia/65569-pronuptia-esmeralda.html"><img src="//static.msromantic.com/151352/pronuptia-esmeralda.jpg" alt="Pronuptia Esmeralda" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/pronuptia-collection-pronuptia/65569-pronuptia-esmeralda.html"><img src="//static.msromantic.com/151350/pronuptia-esmeralda.jpg" alt="Pronuptia Esmeralda" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/pronuptia-collection-pronuptia/65569-pronuptia-esmeralda.html](https://www.antebrands.com/en/pronuptia-collection-pronuptia/65569-pronuptia-esmeralda.html)

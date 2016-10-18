@@ -9,7 +9,7 @@ tags: [Forget Me Not Designs Rhythm and Blues]
 Just **$329.99**
 ### 
 
-<a href="https://www.readybrides.com/en/forget-me-not-designs-rhythm-and-blues/62607-forget-me-not-designs-charice.html"><img src="//static.msromantic.com/145253/forget-me-not-designs-charice.jpg" alt="Forget Me Not Designs Charice" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/forget-me-not-designs-rhythm-and-blues/62607-forget-me-not-designs-charice.html"><img src="//static.msromantic.com/145253/forget-me-not-designs-charice.jpg" alt="Forget Me Not Designs Charice" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/forget-me-not-designs-rhythm-and-blues/62607-forget-me-not-designs-charice.html"><img src="//static.msromantic.com/145252/forget-me-not-designs-charice.jpg" alt="Forget Me Not Designs Charice" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/forget-me-not-designs-rhythm-and-blues/62607-forget-me-not-designs-charice.html](https://www.readybrides.com/en/forget-me-not-designs-rhythm-and-blues/62607-forget-me-not-designs-charice.html)
+<!-- break --><a href="https://www.antebrands.com/en/forget-me-not-designs-rhythm-and-blues/62607-forget-me-not-designs-charice.html"><img src="//static.msromantic.com/145252/forget-me-not-designs-charice.jpg" alt="Forget Me Not Designs Charice" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/forget-me-not-designs-rhythm-and-blues/62607-forget-me-not-designs-charice.html](https://www.antebrands.com/en/forget-me-not-designs-rhythm-and-blues/62607-forget-me-not-designs-charice.html)

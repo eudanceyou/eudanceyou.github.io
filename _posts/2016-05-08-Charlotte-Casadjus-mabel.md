@@ -9,8 +9,8 @@ tags: [Charlotte Casadéjus]
 Just **$289.99**
 ###      
 <table><tr><td>BRANDS</td><td>Charlotte Casadéjus</td></tr></table>
-<a href="https://www.readybrides.com/en/charlotte-casadejus/62018-charlotte-casadejus-mabel.html"><img src="//static.msromantic.com/143506/charlotte-casadejus-mabel.jpg" alt="Charlotte Casadéjus mabel" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/charlotte-casadejus/62018-charlotte-casadejus-mabel.html"><img src="//static.msromantic.com/143506/charlotte-casadejus-mabel.jpg" alt="Charlotte Casadéjus mabel" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/charlotte-casadejus/62018-charlotte-casadejus-mabel.html"><img src="//static.msromantic.com/143507/charlotte-casadejus-mabel.jpg" alt="Charlotte Casadéjus mabel" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/charlotte-casadejus/62018-charlotte-casadejus-mabel.html"><img src="//static.msromantic.com/143505/charlotte-casadejus-mabel.jpg" alt="Charlotte Casadéjus mabel" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/charlotte-casadejus/62018-charlotte-casadejus-mabel.html](https://www.readybrides.com/en/charlotte-casadejus/62018-charlotte-casadejus-mabel.html)
+<!-- break --><a href="https://www.antebrands.com/en/charlotte-casadejus/62018-charlotte-casadejus-mabel.html"><img src="//static.msromantic.com/143507/charlotte-casadejus-mabel.jpg" alt="Charlotte Casadéjus mabel" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/charlotte-casadejus/62018-charlotte-casadejus-mabel.html"><img src="//static.msromantic.com/143505/charlotte-casadejus-mabel.jpg" alt="Charlotte Casadéjus mabel" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/charlotte-casadejus/62018-charlotte-casadejus-mabel.html](https://www.antebrands.com/en/charlotte-casadejus/62018-charlotte-casadejus-mabel.html)

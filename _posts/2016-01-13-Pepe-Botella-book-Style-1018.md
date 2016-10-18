@@ -9,7 +9,7 @@ tags: [Pepe Botella  book]
 Just **$229.99**
 ### 
 
-<a href="https://www.readybrides.com/en/pepe-botella-book/65171-pepe-botella-book-style-1018.html"><img src="//static.msromantic.com/150634/pepe-botella-book-style-1018.jpg" alt="Pepe Botella  book Style 1018" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/pepe-botella-book/65171-pepe-botella-book-style-1018.html"><img src="//static.msromantic.com/150634/pepe-botella-book-style-1018.jpg" alt="Pepe Botella  book Style 1018" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/pepe-botella-book/65171-pepe-botella-book-style-1018.html](https://www.readybrides.com/en/pepe-botella-book/65171-pepe-botella-book-style-1018.html)
+Buy it: [https://www.antebrands.com/en/pepe-botella-book/65171-pepe-botella-book-style-1018.html](https://www.antebrands.com/en/pepe-botella-book/65171-pepe-botella-book-style-1018.html)

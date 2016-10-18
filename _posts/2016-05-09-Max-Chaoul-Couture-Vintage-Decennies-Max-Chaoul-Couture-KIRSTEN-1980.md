@@ -9,7 +9,7 @@ tags: [Max Chaoul Couture Vintage Decennies]
 Just **$289.99**
 ### 
 
-<a href="https://www.readybrides.com/en/max-chaoul-couture-vintage-decennies/63887-max-chaoul-couture-kirsten-1980.html"><img src="//static.msromantic.com/147452/max-chaoul-couture-kirsten-1980.jpg" alt="Max Chaoul Couture KIRSTEN - 1980" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/max-chaoul-couture-vintage-decennies/63887-max-chaoul-couture-kirsten-1980.html"><img src="//static.msromantic.com/147452/max-chaoul-couture-kirsten-1980.jpg" alt="Max Chaoul Couture KIRSTEN - 1980" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/max-chaoul-couture-vintage-decennies/63887-max-chaoul-couture-kirsten-1980.html](https://www.readybrides.com/en/max-chaoul-couture-vintage-decennies/63887-max-chaoul-couture-kirsten-1980.html)
+Buy it: [https://www.antebrands.com/en/max-chaoul-couture-vintage-decennies/63887-max-chaoul-couture-kirsten-1980.html](https://www.antebrands.com/en/max-chaoul-couture-vintage-decennies/63887-max-chaoul-couture-kirsten-1980.html)

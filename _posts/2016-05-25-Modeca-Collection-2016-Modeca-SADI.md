@@ -9,9 +9,9 @@ tags: [Modeca Collection 2016]
 Just **$359.99**
 ### 
 
-<a href="https://www.readybrides.com/en/modeca-collection-2016/63903-modeca-sadi.html"><img src="//static.msromantic.com/147488/modeca-sadi.jpg" alt="Modeca SADI" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/modeca-collection-2016/63903-modeca-sadi.html"><img src="//static.msromantic.com/147488/modeca-sadi.jpg" alt="Modeca SADI" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/modeca-collection-2016/63903-modeca-sadi.html"><img src="//static.msromantic.com/147489/modeca-sadi.jpg" alt="Modeca SADI" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/modeca-collection-2016/63903-modeca-sadi.html"><img src="//static.msromantic.com/147490/modeca-sadi.jpg" alt="Modeca SADI" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/modeca-collection-2016/63903-modeca-sadi.html"><img src="//static.msromantic.com/147487/modeca-sadi.jpg" alt="Modeca SADI" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/modeca-collection-2016/63903-modeca-sadi.html](https://www.readybrides.com/en/modeca-collection-2016/63903-modeca-sadi.html)
+<!-- break --><a href="https://www.antebrands.com/en/modeca-collection-2016/63903-modeca-sadi.html"><img src="//static.msromantic.com/147489/modeca-sadi.jpg" alt="Modeca SADI" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/modeca-collection-2016/63903-modeca-sadi.html"><img src="//static.msromantic.com/147490/modeca-sadi.jpg" alt="Modeca SADI" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/modeca-collection-2016/63903-modeca-sadi.html"><img src="//static.msromantic.com/147487/modeca-sadi.jpg" alt="Modeca SADI" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/modeca-collection-2016/63903-modeca-sadi.html](https://www.antebrands.com/en/modeca-collection-2016/63903-modeca-sadi.html)

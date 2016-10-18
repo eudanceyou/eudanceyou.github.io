@@ -9,7 +9,7 @@ tags: [Rivini  Spring 2015]
 Just **$409.99**
 ### 
 
-<a href="https://www.readybrides.com/en/rivini-spring-2015/65909-rivini-angelique.html"><img src="//static.msromantic.com/151967/rivini-angelique.jpg" alt="Rivini  Angelique" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/rivini-spring-2015/65909-rivini-angelique.html"><img src="//static.msromantic.com/151967/rivini-angelique.jpg" alt="Rivini  Angelique" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/rivini-spring-2015/65909-rivini-angelique.html](https://www.readybrides.com/en/rivini-spring-2015/65909-rivini-angelique.html)
+Buy it: [https://www.antebrands.com/en/rivini-spring-2015/65909-rivini-angelique.html](https://www.antebrands.com/en/rivini-spring-2015/65909-rivini-angelique.html)

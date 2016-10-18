@@ -9,7 +9,7 @@ tags: [Caroline DeVillo Couture Collection]
 Just **$269.99**
 ### 
 
-<a href="https://www.readybrides.com/en/caroline-devillo-couture-collection/61546-caroline-devillo-josephine.html"><img src="//static.msromantic.com/142590/caroline-devillo-josephine.jpg" alt="Caroline DeVillo Josephine" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/caroline-devillo-couture-collection/61546-caroline-devillo-josephine.html"><img src="//static.msromantic.com/142590/caroline-devillo-josephine.jpg" alt="Caroline DeVillo Josephine" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/caroline-devillo-couture-collection/61546-caroline-devillo-josephine.html](https://www.readybrides.com/en/caroline-devillo-couture-collection/61546-caroline-devillo-josephine.html)
+Buy it: [https://www.antebrands.com/en/caroline-devillo-couture-collection/61546-caroline-devillo-josephine.html](https://www.antebrands.com/en/caroline-devillo-couture-collection/61546-caroline-devillo-josephine.html)

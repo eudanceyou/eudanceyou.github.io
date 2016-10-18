@@ -9,7 +9,7 @@ tags: [Kelsey Rose White Collection]
 Just **$289.99**
 ### 
 
-<a href="https://www.readybrides.com/en/kelsey-rose-white-collection/63647-kelsey-rose-white-collection-style-15142.html"><img src="//static.msromantic.com/146820/kelsey-rose-white-collection-style-15142.jpg" alt="Kelsey Rose White Collection Style 15142" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/kelsey-rose-white-collection/63647-kelsey-rose-white-collection-style-15142.html"><img src="//static.msromantic.com/146820/kelsey-rose-white-collection-style-15142.jpg" alt="Kelsey Rose White Collection Style 15142" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/kelsey-rose-white-collection/63647-kelsey-rose-white-collection-style-15142.html"><img src="//static.msromantic.com/146819/kelsey-rose-white-collection-style-15142.jpg" alt="Kelsey Rose White Collection Style 15142" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/kelsey-rose-white-collection/63647-kelsey-rose-white-collection-style-15142.html](https://www.readybrides.com/en/kelsey-rose-white-collection/63647-kelsey-rose-white-collection-style-15142.html)
+<!-- break --><a href="https://www.antebrands.com/en/kelsey-rose-white-collection/63647-kelsey-rose-white-collection-style-15142.html"><img src="//static.msromantic.com/146819/kelsey-rose-white-collection-style-15142.jpg" alt="Kelsey Rose White Collection Style 15142" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/kelsey-rose-white-collection/63647-kelsey-rose-white-collection-style-15142.html](https://www.antebrands.com/en/kelsey-rose-white-collection/63647-kelsey-rose-white-collection-style-15142.html)

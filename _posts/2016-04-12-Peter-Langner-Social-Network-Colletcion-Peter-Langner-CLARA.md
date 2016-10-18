@@ -9,8 +9,8 @@ tags: [Peter Langner Social Network Colletcion]
 Just **$269.99**
 ### 
 
-<a href="https://www.readybrides.com/en/peter-langner-social-network-colletcion/65261-peter-langner-clara.html"><img src="//static.msromantic.com/150821/peter-langner-clara.jpg" alt="Peter Langner CLARA" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/peter-langner-social-network-colletcion/65261-peter-langner-clara.html"><img src="//static.msromantic.com/150821/peter-langner-clara.jpg" alt="Peter Langner CLARA" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/peter-langner-social-network-colletcion/65261-peter-langner-clara.html"><img src="//static.msromantic.com/150822/peter-langner-clara.jpg" alt="Peter Langner CLARA" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/peter-langner-social-network-colletcion/65261-peter-langner-clara.html"><img src="//static.msromantic.com/150820/peter-langner-clara.jpg" alt="Peter Langner CLARA" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/peter-langner-social-network-colletcion/65261-peter-langner-clara.html](https://www.readybrides.com/en/peter-langner-social-network-colletcion/65261-peter-langner-clara.html)
+<!-- break --><a href="https://www.antebrands.com/en/peter-langner-social-network-colletcion/65261-peter-langner-clara.html"><img src="//static.msromantic.com/150822/peter-langner-clara.jpg" alt="Peter Langner CLARA" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/peter-langner-social-network-colletcion/65261-peter-langner-clara.html"><img src="//static.msromantic.com/150820/peter-langner-clara.jpg" alt="Peter Langner CLARA" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/peter-langner-social-network-colletcion/65261-peter-langner-clara.html](https://www.antebrands.com/en/peter-langner-social-network-colletcion/65261-peter-langner-clara.html)

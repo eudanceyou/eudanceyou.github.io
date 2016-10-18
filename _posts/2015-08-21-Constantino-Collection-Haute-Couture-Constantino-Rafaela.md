@@ -9,8 +9,8 @@ tags: [Constantino Collection Haute Couture]
 Just **$349.99**
 ### 
 
-<a href="https://www.readybrides.com/en/constantino-collection-haute-couture/62224-constantino-rafaela.html"><img src="//static.msromantic.com/144342/constantino-rafaela.jpg" alt="Constantino Νυφικό Rafaela" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/constantino-collection-haute-couture/62224-constantino-rafaela.html"><img src="//static.msromantic.com/144342/constantino-rafaela.jpg" alt="Constantino Νυφικό Rafaela" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/constantino-collection-haute-couture/62224-constantino-rafaela.html"><img src="//static.msromantic.com/144343/constantino-rafaela.jpg" alt="Constantino Νυφικό Rafaela" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/constantino-collection-haute-couture/62224-constantino-rafaela.html"><img src="//static.msromantic.com/144341/constantino-rafaela.jpg" alt="Constantino Νυφικό Rafaela" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/constantino-collection-haute-couture/62224-constantino-rafaela.html](https://www.readybrides.com/en/constantino-collection-haute-couture/62224-constantino-rafaela.html)
+<!-- break --><a href="https://www.antebrands.com/en/constantino-collection-haute-couture/62224-constantino-rafaela.html"><img src="//static.msromantic.com/144343/constantino-rafaela.jpg" alt="Constantino Νυφικό Rafaela" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/constantino-collection-haute-couture/62224-constantino-rafaela.html"><img src="//static.msromantic.com/144341/constantino-rafaela.jpg" alt="Constantino Νυφικό Rafaela" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/constantino-collection-haute-couture/62224-constantino-rafaela.html](https://www.antebrands.com/en/constantino-collection-haute-couture/62224-constantino-rafaela.html)

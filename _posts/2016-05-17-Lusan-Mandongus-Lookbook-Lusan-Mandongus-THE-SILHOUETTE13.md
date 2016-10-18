@@ -9,7 +9,7 @@ tags: [Lusan Mandongus Lookbook]
 Just **$319.99**
 ### 
 
-<a href="https://www.readybrides.com/en/lusan-mandongus-lookbook/63428-lusan-mandongus-the-silhouette13.html"><img src="//static.msromantic.com/146340/lusan-mandongus-the-silhouette13.jpg" alt="Lusan Mandongus THE SILHOUETTE_13" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/lusan-mandongus-lookbook/63428-lusan-mandongus-the-silhouette13.html"><img src="//static.msromantic.com/146340/lusan-mandongus-the-silhouette13.jpg" alt="Lusan Mandongus THE SILHOUETTE_13" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/lusan-mandongus-lookbook/63428-lusan-mandongus-the-silhouette13.html](https://www.readybrides.com/en/lusan-mandongus-lookbook/63428-lusan-mandongus-the-silhouette13.html)
+Buy it: [https://www.antebrands.com/en/lusan-mandongus-lookbook/63428-lusan-mandongus-the-silhouette13.html](https://www.antebrands.com/en/lusan-mandongus-lookbook/63428-lusan-mandongus-the-silhouette13.html)

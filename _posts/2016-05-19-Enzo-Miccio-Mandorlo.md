@@ -9,7 +9,7 @@ tags: [Enzo Miccio]
 Just **$379.99**
 ###      
 <table><tr><td>BRANDS</td><td>Enzo Miccio</td></tr></table>
-<a href="https://www.readybrides.com/en/enzo-miccio/62496-enzo-miccio-mandorlo.html"><img src="//static.msromantic.com/144993/enzo-miccio-mandorlo.jpg" alt="Enzo Miccio Mandorlo" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/enzo-miccio/62496-enzo-miccio-mandorlo.html"><img src="//static.msromantic.com/144993/enzo-miccio-mandorlo.jpg" alt="Enzo Miccio Mandorlo" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/enzo-miccio/62496-enzo-miccio-mandorlo.html"><img src="//static.msromantic.com/144992/enzo-miccio-mandorlo.jpg" alt="Enzo Miccio Mandorlo" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/enzo-miccio/62496-enzo-miccio-mandorlo.html](https://www.readybrides.com/en/enzo-miccio/62496-enzo-miccio-mandorlo.html)
+<!-- break --><a href="https://www.antebrands.com/en/enzo-miccio/62496-enzo-miccio-mandorlo.html"><img src="//static.msromantic.com/144992/enzo-miccio-mandorlo.jpg" alt="Enzo Miccio Mandorlo" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/enzo-miccio/62496-enzo-miccio-mandorlo.html](https://www.antebrands.com/en/enzo-miccio/62496-enzo-miccio-mandorlo.html)

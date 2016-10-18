@@ -9,7 +9,7 @@ tags: [Constantino Collection Very Chic 2013]
 Just **$309.99**
 ### 
 
-<a href="https://www.readybrides.com/en/constantino-collection-very-chic-2013/62262-constantino-tatianna.html"><img src="//static.msromantic.com/144449/constantino-tatianna.jpg" alt="Constantino Νυφικό Tatianna" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/constantino-collection-very-chic-2013/62262-constantino-tatianna.html"><img src="//static.msromantic.com/144449/constantino-tatianna.jpg" alt="Constantino Νυφικό Tatianna" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/constantino-collection-very-chic-2013/62262-constantino-tatianna.html"><img src="//static.msromantic.com/144448/constantino-tatianna.jpg" alt="Constantino Νυφικό Tatianna" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/constantino-collection-very-chic-2013/62262-constantino-tatianna.html](https://www.readybrides.com/en/constantino-collection-very-chic-2013/62262-constantino-tatianna.html)
+<!-- break --><a href="https://www.antebrands.com/en/constantino-collection-very-chic-2013/62262-constantino-tatianna.html"><img src="//static.msromantic.com/144448/constantino-tatianna.jpg" alt="Constantino Νυφικό Tatianna" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/constantino-collection-very-chic-2013/62262-constantino-tatianna.html](https://www.antebrands.com/en/constantino-collection-very-chic-2013/62262-constantino-tatianna.html)

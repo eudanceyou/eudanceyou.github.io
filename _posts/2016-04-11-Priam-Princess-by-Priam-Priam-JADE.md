@@ -9,7 +9,7 @@ tags: [Priam Princess by Priam]
 Just **$339.99**
 ### 
 
-<a href="https://www.readybrides.com/en/priam-princess-by-priam/65727-priam-jade.html"><img src="//static.msromantic.com/151644/priam-jade.jpg" alt="Priam JADE" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/priam-princess-by-priam/65727-priam-jade.html"><img src="//static.msromantic.com/151644/priam-jade.jpg" alt="Priam JADE" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/priam-princess-by-priam/65727-priam-jade.html](https://www.readybrides.com/en/priam-princess-by-priam/65727-priam-jade.html)
+Buy it: [https://www.antebrands.com/en/priam-princess-by-priam/65727-priam-jade.html](https://www.antebrands.com/en/priam-princess-by-priam/65727-priam-jade.html)

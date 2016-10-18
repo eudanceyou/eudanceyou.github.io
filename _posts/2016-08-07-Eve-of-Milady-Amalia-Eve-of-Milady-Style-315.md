@@ -9,7 +9,7 @@ tags: [Eve of Milady Amalia]
 Just **$539.99**
 ### 
 
-<a href="https://www.readybrides.com/en/eve-of-milady-amalia/62576-eve-of-milady-style-315.html"><img src="//static.msromantic.com/145163/eve-of-milady-style-315.jpg" alt="Eve of Milady Style 315" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/eve-of-milady-amalia/62576-eve-of-milady-style-315.html"><img src="//static.msromantic.com/145163/eve-of-milady-style-315.jpg" alt="Eve of Milady Style 315" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/eve-of-milady-amalia/62576-eve-of-milady-style-315.html](https://www.readybrides.com/en/eve-of-milady-amalia/62576-eve-of-milady-style-315.html)
+Buy it: [https://www.antebrands.com/en/eve-of-milady-amalia/62576-eve-of-milady-style-315.html](https://www.antebrands.com/en/eve-of-milady-amalia/62576-eve-of-milady-style-315.html)

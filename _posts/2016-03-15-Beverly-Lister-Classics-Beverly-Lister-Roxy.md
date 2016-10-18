@@ -9,7 +9,7 @@ tags: [Beverly Lister Classics]
 Just **$269.99**
 ### 
 
-<a href="https://www.readybrides.com/en/beverly-lister-classics/61497-beverly-lister-roxy.html"><img src="//static.msromantic.com/142512/beverly-lister-roxy.jpg" alt="Beverly Lister Roxy" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/beverly-lister-classics/61497-beverly-lister-roxy.html"><img src="//static.msromantic.com/142512/beverly-lister-roxy.jpg" alt="Beverly Lister Roxy" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/beverly-lister-classics/61497-beverly-lister-roxy.html](https://www.readybrides.com/en/beverly-lister-classics/61497-beverly-lister-roxy.html)
+Buy it: [https://www.antebrands.com/en/beverly-lister-classics/61497-beverly-lister-roxy.html](https://www.antebrands.com/en/beverly-lister-classics/61497-beverly-lister-roxy.html)

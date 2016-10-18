@@ -9,7 +9,7 @@ tags: [Kenneth Pool]
 Just **$459.99**
 ###      
 <table><tr><td>BRANDS</td><td>Kenneth Pool</td></tr></table>
-<a href="https://www.readybrides.com/en/kenneth-pool/63683-kenneth-pool-maxine.html"><img src="//static.msromantic.com/146905/kenneth-pool-maxine.jpg" alt="Kenneth Pool Maxine" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/kenneth-pool/63683-kenneth-pool-maxine.html"><img src="//static.msromantic.com/146905/kenneth-pool-maxine.jpg" alt="Kenneth Pool Maxine" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/kenneth-pool/63683-kenneth-pool-maxine.html"><img src="//static.msromantic.com/146904/kenneth-pool-maxine.jpg" alt="Kenneth Pool Maxine" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/kenneth-pool/63683-kenneth-pool-maxine.html](https://www.readybrides.com/en/kenneth-pool/63683-kenneth-pool-maxine.html)
+<!-- break --><a href="https://www.antebrands.com/en/kenneth-pool/63683-kenneth-pool-maxine.html"><img src="//static.msromantic.com/146904/kenneth-pool-maxine.jpg" alt="Kenneth Pool Maxine" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/kenneth-pool/63683-kenneth-pool-maxine.html](https://www.antebrands.com/en/kenneth-pool/63683-kenneth-pool-maxine.html)

@@ -9,7 +9,7 @@ tags: [Priam Paris Samarcande by PRIAM]
 Just **$349.99**
 ### 
 
-<a href="https://www.readybrides.com/en/priam-paris-samarcande-by-priam/65761-priam-nava.html"><img src="//static.msromantic.com/151678/priam-nava.jpg" alt="Priam NAVA" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/priam-paris-samarcande-by-priam/65761-priam-nava.html"><img src="//static.msromantic.com/151678/priam-nava.jpg" alt="Priam NAVA" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/priam-paris-samarcande-by-priam/65761-priam-nava.html](https://www.readybrides.com/en/priam-paris-samarcande-by-priam/65761-priam-nava.html)
+Buy it: [https://www.antebrands.com/en/priam-paris-samarcande-by-priam/65761-priam-nava.html](https://www.antebrands.com/en/priam-paris-samarcande-by-priam/65761-priam-nava.html)

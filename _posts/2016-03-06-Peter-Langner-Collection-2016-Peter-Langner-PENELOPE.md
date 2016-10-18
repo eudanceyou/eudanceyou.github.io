@@ -9,7 +9,7 @@ tags: [Peter Langner Collection 2016]
 Just **$329.99**
 ### 
 
-<a href="https://www.readybrides.com/en/peter-langner-collection-2016/65224-peter-langner-penelope.html"><img src="//static.msromantic.com/150731/peter-langner-penelope.jpg" alt="Peter Langner PENELOPE" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/peter-langner-collection-2016/65224-peter-langner-penelope.html"><img src="//static.msromantic.com/150731/peter-langner-penelope.jpg" alt="Peter Langner PENELOPE" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/peter-langner-collection-2016/65224-peter-langner-penelope.html"><img src="//static.msromantic.com/150730/peter-langner-penelope.jpg" alt="Peter Langner PENELOPE" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/peter-langner-collection-2016/65224-peter-langner-penelope.html](https://www.readybrides.com/en/peter-langner-collection-2016/65224-peter-langner-penelope.html)
+<!-- break --><a href="https://www.antebrands.com/en/peter-langner-collection-2016/65224-peter-langner-penelope.html"><img src="//static.msromantic.com/150730/peter-langner-penelope.jpg" alt="Peter Langner PENELOPE" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/peter-langner-collection-2016/65224-peter-langner-penelope.html](https://www.antebrands.com/en/peter-langner-collection-2016/65224-peter-langner-penelope.html)

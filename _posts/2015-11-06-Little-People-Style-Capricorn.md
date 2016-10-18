@@ -9,7 +9,7 @@ tags: [Little People]
 Just **$159.99**
 ###      
 <table><tr><td>BRANDS</td><td>Little People</td></tr></table>
-<a href="https://www.readybrides.com/en/little-people/62768-little-people-style-capricorn.html"><img src="//static.msromantic.com/145537/little-people-style-capricorn.jpg" alt="Little People Style Capricorn" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/little-people/62768-little-people-style-capricorn.html"><img src="//static.msromantic.com/145537/little-people-style-capricorn.jpg" alt="Little People Style Capricorn" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/little-people/62768-little-people-style-capricorn.html](https://www.readybrides.com/en/little-people/62768-little-people-style-capricorn.html)
+Buy it: [https://www.antebrands.com/en/little-people/62768-little-people-style-capricorn.html](https://www.antebrands.com/en/little-people/62768-little-people-style-capricorn.html)

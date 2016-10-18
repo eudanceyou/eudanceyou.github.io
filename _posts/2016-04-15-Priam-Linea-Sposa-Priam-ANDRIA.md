@@ -9,7 +9,7 @@ tags: [Priam Linea Sposa]
 Just **$379.99**
 ### 
 
-<a href="https://www.readybrides.com/en/priam-linea-sposa/65731-priam-andria.html"><img src="//static.msromantic.com/151648/priam-andria.jpg" alt="Priam ANDRIA" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/priam-linea-sposa/65731-priam-andria.html"><img src="//static.msromantic.com/151648/priam-andria.jpg" alt="Priam ANDRIA" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/priam-linea-sposa/65731-priam-andria.html](https://www.readybrides.com/en/priam-linea-sposa/65731-priam-andria.html)
+Buy it: [https://www.antebrands.com/en/priam-linea-sposa/65731-priam-andria.html](https://www.antebrands.com/en/priam-linea-sposa/65731-priam-andria.html)

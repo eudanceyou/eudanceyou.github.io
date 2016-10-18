@@ -9,7 +9,7 @@ tags: [Riki Dalal Valencia Collection]
 Just **$599.99**
 ### 
 
-<a href="https://www.readybrides.com/en/riki-dalal-valencia-collection/65651-riki-dalal-valencia-collection-style-1714.html"><img src="//static.msromantic.com/151568/riki-dalal-valencia-collection-style-1714.jpg" alt="Riki Dalal Valencia Collection Style 1714" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/riki-dalal-valencia-collection/65651-riki-dalal-valencia-collection-style-1714.html"><img src="//static.msromantic.com/151568/riki-dalal-valencia-collection-style-1714.jpg" alt="Riki Dalal Valencia Collection Style 1714" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/riki-dalal-valencia-collection/65651-riki-dalal-valencia-collection-style-1714.html](https://www.readybrides.com/en/riki-dalal-valencia-collection/65651-riki-dalal-valencia-collection-style-1714.html)
+Buy it: [https://www.antebrands.com/en/riki-dalal-valencia-collection/65651-riki-dalal-valencia-collection-style-1714.html](https://www.antebrands.com/en/riki-dalal-valencia-collection/65651-riki-dalal-valencia-collection-style-1714.html)

@@ -9,7 +9,7 @@ tags: [Caroline DeVillo Couture Collection]
 Just **$259.99**
 ### 
 
-<a href="https://www.readybrides.com/en/caroline-devillo-couture-collection/61550-caroline-devillo-bridgitte.html"><img src="//static.msromantic.com/142594/caroline-devillo-bridgitte.jpg" alt="Caroline DeVillo Bridgitte" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/caroline-devillo-couture-collection/61550-caroline-devillo-bridgitte.html"><img src="//static.msromantic.com/142594/caroline-devillo-bridgitte.jpg" alt="Caroline DeVillo Bridgitte" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/caroline-devillo-couture-collection/61550-caroline-devillo-bridgitte.html](https://www.readybrides.com/en/caroline-devillo-couture-collection/61550-caroline-devillo-bridgitte.html)
+Buy it: [https://www.antebrands.com/en/caroline-devillo-couture-collection/61550-caroline-devillo-bridgitte.html](https://www.antebrands.com/en/caroline-devillo-couture-collection/61550-caroline-devillo-bridgitte.html)

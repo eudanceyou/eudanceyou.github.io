@@ -9,7 +9,7 @@ tags: [Hollywood Dreams Collection 2014]
 Just **$379.99**
 ### 
 
-<a href="https://www.readybrides.com/en/hollywood-dreams-collection-2014/62706-hollywood-dreams-lydia.html"><img src="//static.msromantic.com/145473/hollywood-dreams-lydia.jpg" alt="Hollywood Dreams Lydia" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/hollywood-dreams-collection-2014/62706-hollywood-dreams-lydia.html"><img src="//static.msromantic.com/145473/hollywood-dreams-lydia.jpg" alt="Hollywood Dreams Lydia" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/hollywood-dreams-collection-2014/62706-hollywood-dreams-lydia.html](https://www.readybrides.com/en/hollywood-dreams-collection-2014/62706-hollywood-dreams-lydia.html)
+Buy it: [https://www.antebrands.com/en/hollywood-dreams-collection-2014/62706-hollywood-dreams-lydia.html](https://www.antebrands.com/en/hollywood-dreams-collection-2014/62706-hollywood-dreams-lydia.html)

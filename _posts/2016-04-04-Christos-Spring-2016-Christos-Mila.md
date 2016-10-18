@@ -9,7 +9,7 @@ tags: [Christos Spring 2016]
 Just **$319.99**
 ### 
 
-<a href="https://www.readybrides.com/en/christos-spring-2016/61517-christos-mila.html"><img src="//static.msromantic.com/142542/christos-mila.jpg" alt="Christos Mila" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/christos-spring-2016/61517-christos-mila.html"><img src="//static.msromantic.com/142542/christos-mila.jpg" alt="Christos Mila" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/christos-spring-2016/61517-christos-mila.html"><img src="//static.msromantic.com/142541/christos-mila.jpg" alt="Christos Mila" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/christos-spring-2016/61517-christos-mila.html](https://www.readybrides.com/en/christos-spring-2016/61517-christos-mila.html)
+<!-- break --><a href="https://www.antebrands.com/en/christos-spring-2016/61517-christos-mila.html"><img src="//static.msromantic.com/142541/christos-mila.jpg" alt="Christos Mila" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/christos-spring-2016/61517-christos-mila.html](https://www.antebrands.com/en/christos-spring-2016/61517-christos-mila.html)

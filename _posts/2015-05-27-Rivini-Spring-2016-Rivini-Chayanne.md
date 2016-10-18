@@ -9,7 +9,7 @@ tags: [Rivini  Spring 2016]
 Just **$319.99**
 ### 
 
-<a href="https://www.readybrides.com/en/rivini-spring-2016/65874-rivini-chayanne.html"><img src="//static.msromantic.com/151901/rivini-chayanne.jpg" alt="Rivini  Chayanne" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/rivini-spring-2016/65874-rivini-chayanne.html"><img src="//static.msromantic.com/151901/rivini-chayanne.jpg" alt="Rivini  Chayanne" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/rivini-spring-2016/65874-rivini-chayanne.html"><img src="//static.msromantic.com/151900/rivini-chayanne.jpg" alt="Rivini  Chayanne" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/rivini-spring-2016/65874-rivini-chayanne.html](https://www.readybrides.com/en/rivini-spring-2016/65874-rivini-chayanne.html)
+<!-- break --><a href="https://www.antebrands.com/en/rivini-spring-2016/65874-rivini-chayanne.html"><img src="//static.msromantic.com/151900/rivini-chayanne.jpg" alt="Rivini  Chayanne" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/rivini-spring-2016/65874-rivini-chayanne.html](https://www.antebrands.com/en/rivini-spring-2016/65874-rivini-chayanne.html)

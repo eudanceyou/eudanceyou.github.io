@@ -9,7 +9,7 @@ tags: [Priam Linea Sposa]
 Just **$339.99**
 ### 
 
-<a href="https://www.readybrides.com/en/priam-linea-sposa/65734-priam-capri.html"><img src="//static.msromantic.com/151651/priam-capri.jpg" alt="Priam CAPRI" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/priam-linea-sposa/65734-priam-capri.html"><img src="//static.msromantic.com/151651/priam-capri.jpg" alt="Priam CAPRI" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/priam-linea-sposa/65734-priam-capri.html](https://www.readybrides.com/en/priam-linea-sposa/65734-priam-capri.html)
+Buy it: [https://www.antebrands.com/en/priam-linea-sposa/65734-priam-capri.html](https://www.antebrands.com/en/priam-linea-sposa/65734-priam-capri.html)

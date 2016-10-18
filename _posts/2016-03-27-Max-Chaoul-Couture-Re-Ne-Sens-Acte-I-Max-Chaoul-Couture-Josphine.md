@@ -9,7 +9,7 @@ tags: [Max Chaoul Couture Re Née Sens - Acte I]
 Just **$299.99**
 ### 
 
-<a href="https://www.readybrides.com/en/max-chaoul-couture-re-nee-sens-acte-i/63844-max-chaoul-couture-josephine.html"><img src="//static.msromantic.com/147401/max-chaoul-couture-josephine.jpg" alt="Max Chaoul Couture Joséphine" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/max-chaoul-couture-re-nee-sens-acte-i/63844-max-chaoul-couture-josephine.html"><img src="//static.msromantic.com/147401/max-chaoul-couture-josephine.jpg" alt="Max Chaoul Couture Joséphine" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/max-chaoul-couture-re-nee-sens-acte-i/63844-max-chaoul-couture-josephine.html](https://www.readybrides.com/en/max-chaoul-couture-re-nee-sens-acte-i/63844-max-chaoul-couture-josephine.html)
+Buy it: [https://www.antebrands.com/en/max-chaoul-couture-re-nee-sens-acte-i/63844-max-chaoul-couture-josephine.html](https://www.antebrands.com/en/max-chaoul-couture-re-nee-sens-acte-i/63844-max-chaoul-couture-josephine.html)

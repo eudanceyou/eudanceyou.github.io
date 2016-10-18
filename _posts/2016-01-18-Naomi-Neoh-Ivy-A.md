@@ -9,7 +9,7 @@ tags: [Naomi Neoh]
 Just **$329.99**
 ###      
 <table><tr><td>BRANDS</td><td>Naomi Neoh</td></tr></table>
-<a href="https://www.readybrides.com/en/naomi-neoh/64242-naomi-neoh-ivy-a.html"><img src="//static.msromantic.com/148520/naomi-neoh-ivy-a.jpg" alt="Naomi Neoh Ivy A" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/naomi-neoh/64242-naomi-neoh-ivy-a.html"><img src="//static.msromantic.com/148520/naomi-neoh-ivy-a.jpg" alt="Naomi Neoh Ivy A" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/naomi-neoh/64242-naomi-neoh-ivy-a.html](https://www.readybrides.com/en/naomi-neoh/64242-naomi-neoh-ivy-a.html)
+Buy it: [https://www.antebrands.com/en/naomi-neoh/64242-naomi-neoh-ivy-a.html](https://www.antebrands.com/en/naomi-neoh/64242-naomi-neoh-ivy-a.html)

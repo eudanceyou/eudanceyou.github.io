@@ -9,8 +9,8 @@ tags: [Constantino Collection Vintage]
 Just **$369.99**
 ### 
 
-<a href="https://www.readybrides.com/en/constantino-collection-vintage/62242-constantino-cecil.html"><img src="//static.msromantic.com/144394/constantino-cecil.jpg" alt="Constantino Νυφικό Cecil" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/constantino-collection-vintage/62242-constantino-cecil.html"><img src="//static.msromantic.com/144394/constantino-cecil.jpg" alt="Constantino Νυφικό Cecil" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/constantino-collection-vintage/62242-constantino-cecil.html"><img src="//static.msromantic.com/144395/constantino-cecil.jpg" alt="Constantino Νυφικό Cecil" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/constantino-collection-vintage/62242-constantino-cecil.html"><img src="//static.msromantic.com/144393/constantino-cecil.jpg" alt="Constantino Νυφικό Cecil" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/constantino-collection-vintage/62242-constantino-cecil.html](https://www.readybrides.com/en/constantino-collection-vintage/62242-constantino-cecil.html)
+<!-- break --><a href="https://www.antebrands.com/en/constantino-collection-vintage/62242-constantino-cecil.html"><img src="//static.msromantic.com/144395/constantino-cecil.jpg" alt="Constantino Νυφικό Cecil" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/constantino-collection-vintage/62242-constantino-cecil.html"><img src="//static.msromantic.com/144393/constantino-cecil.jpg" alt="Constantino Νυφικό Cecil" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/constantino-collection-vintage/62242-constantino-cecil.html](https://www.antebrands.com/en/constantino-collection-vintage/62242-constantino-cecil.html)

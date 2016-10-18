@@ -9,7 +9,7 @@ tags: [Landa ]
 Just **$159.99**
 ### 
 
-<a href="https://www.readybrides.com/en/landa-/60470-landa-designs-mc436.html"><img src="//static.msromantic.com/140860/landa-designs-mc436.jpg" alt="Landa Designs MC436" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/landa-/60470-landa-designs-mc436.html"><img src="//static.msromantic.com/140860/landa-designs-mc436.jpg" alt="Landa Designs MC436" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/landa-/60470-landa-designs-mc436.html"><img src="//static.msromantic.com/140859/landa-designs-mc436.jpg" alt="Landa Designs MC436" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/landa-/60470-landa-designs-mc436.html](https://www.readybrides.com/en/landa-/60470-landa-designs-mc436.html)
+<!-- break --><a href="https://www.antebrands.com/en/landa-/60470-landa-designs-mc436.html"><img src="//static.msromantic.com/140859/landa-designs-mc436.jpg" alt="Landa Designs MC436" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/landa-/60470-landa-designs-mc436.html](https://www.antebrands.com/en/landa-/60470-landa-designs-mc436.html)

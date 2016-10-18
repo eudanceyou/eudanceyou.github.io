@@ -9,7 +9,7 @@ tags: [Rivini  Spring 2016]
 Just **$329.99**
 ### 
 
-<a href="https://www.readybrides.com/en/rivini-spring-2016/65881-rivini-jocelyn.html"><img src="//static.msromantic.com/151915/rivini-jocelyn.jpg" alt="Rivini  Jocelyn" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/rivini-spring-2016/65881-rivini-jocelyn.html"><img src="//static.msromantic.com/151915/rivini-jocelyn.jpg" alt="Rivini  Jocelyn" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/rivini-spring-2016/65881-rivini-jocelyn.html"><img src="//static.msromantic.com/151914/rivini-jocelyn.jpg" alt="Rivini  Jocelyn" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/rivini-spring-2016/65881-rivini-jocelyn.html](https://www.readybrides.com/en/rivini-spring-2016/65881-rivini-jocelyn.html)
+<!-- break --><a href="https://www.antebrands.com/en/rivini-spring-2016/65881-rivini-jocelyn.html"><img src="//static.msromantic.com/151914/rivini-jocelyn.jpg" alt="Rivini  Jocelyn" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/rivini-spring-2016/65881-rivini-jocelyn.html](https://www.antebrands.com/en/rivini-spring-2016/65881-rivini-jocelyn.html)

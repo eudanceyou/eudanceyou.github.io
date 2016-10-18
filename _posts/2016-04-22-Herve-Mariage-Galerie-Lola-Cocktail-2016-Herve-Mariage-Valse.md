@@ -9,7 +9,7 @@ tags: [Herve Mariage Galerie Lola Cocktail 2016]
 Just **$199.99**
 ### 
 
-<a href="https://www.readybrides.com/en/herve-mariage-galerie-lola-cocktail-2016/63403-herve-mariage-valse.html"><img src="//static.msromantic.com/146315/herve-mariage-valse.jpg" alt="Herve Mariage Valse" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/herve-mariage-galerie-lola-cocktail-2016/63403-herve-mariage-valse.html"><img src="//static.msromantic.com/146315/herve-mariage-valse.jpg" alt="Herve Mariage Valse" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/herve-mariage-galerie-lola-cocktail-2016/63403-herve-mariage-valse.html](https://www.readybrides.com/en/herve-mariage-galerie-lola-cocktail-2016/63403-herve-mariage-valse.html)
+Buy it: [https://www.antebrands.com/en/herve-mariage-galerie-lola-cocktail-2016/63403-herve-mariage-valse.html](https://www.antebrands.com/en/herve-mariage-galerie-lola-cocktail-2016/63403-herve-mariage-valse.html)

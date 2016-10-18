@@ -11,9 +11,9 @@ tags: [Clarisse Spring 2016]
 Just **$469.99**
 ### 
 
-<a href="https://www.readybrides.com/en/clarisse-spring-2016/61191-clarisse-style-2826.html"><img src="//static.msromantic.com/142136/clarisse-style-2826.jpg" alt="Clarisse Style: 
+<a href="https://www.antebrands.com/en/clarisse-spring-2016/61191-clarisse-style-2826.html"><img src="//static.msromantic.com/142136/clarisse-style-2826.jpg" alt="Clarisse Style: 
 2826" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/clarisse-spring-2016/61191-clarisse-style-2826.html"><img src="//static.msromantic.com/142134/clarisse-style-2826.jpg" alt="Clarisse Style: 
+<!-- break --><a href="https://www.antebrands.com/en/clarisse-spring-2016/61191-clarisse-style-2826.html"><img src="//static.msromantic.com/142134/clarisse-style-2826.jpg" alt="Clarisse Style: 
 2826" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/clarisse-spring-2016/61191-clarisse-style-2826.html](https://www.readybrides.com/en/clarisse-spring-2016/61191-clarisse-style-2826.html)
+Buy it: [https://www.antebrands.com/en/clarisse-spring-2016/61191-clarisse-style-2826.html](https://www.antebrands.com/en/clarisse-spring-2016/61191-clarisse-style-2826.html)

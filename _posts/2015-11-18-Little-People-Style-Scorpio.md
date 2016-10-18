@@ -9,7 +9,7 @@ tags: [Little People]
 Just **$169.99**
 ###      
 <table><tr><td>BRANDS</td><td>Little People</td></tr></table>
-<a href="https://www.readybrides.com/en/little-people/62780-little-people-style-scorpio.html"><img src="//static.msromantic.com/145549/little-people-style-scorpio.jpg" alt="Little People Style Scorpio" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/little-people/62780-little-people-style-scorpio.html"><img src="//static.msromantic.com/145549/little-people-style-scorpio.jpg" alt="Little People Style Scorpio" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/little-people/62780-little-people-style-scorpio.html](https://www.readybrides.com/en/little-people/62780-little-people-style-scorpio.html)
+Buy it: [https://www.antebrands.com/en/little-people/62780-little-people-style-scorpio.html](https://www.antebrands.com/en/little-people/62780-little-people-style-scorpio.html)

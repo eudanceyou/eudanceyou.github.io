@@ -9,7 +9,7 @@ tags: [Priam Paris Samarcande by PRIAM]
 Just **$329.99**
 ### 
 
-<a href="https://www.readybrides.com/en/priam-paris-samarcande-by-priam/65753-priam-fanzara.html"><img src="//static.msromantic.com/151670/priam-fanzara.jpg" alt="Priam FANZARA" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/priam-paris-samarcande-by-priam/65753-priam-fanzara.html"><img src="//static.msromantic.com/151670/priam-fanzara.jpg" alt="Priam FANZARA" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/priam-paris-samarcande-by-priam/65753-priam-fanzara.html](https://www.readybrides.com/en/priam-paris-samarcande-by-priam/65753-priam-fanzara.html)
+Buy it: [https://www.antebrands.com/en/priam-paris-samarcande-by-priam/65753-priam-fanzara.html](https://www.antebrands.com/en/priam-paris-samarcande-by-priam/65753-priam-fanzara.html)

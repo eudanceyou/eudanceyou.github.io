@@ -9,7 +9,7 @@ tags: [Hollywood Dreams Collection 2014]
 Just **$369.99**
 ### 
 
-<a href="https://www.readybrides.com/en/hollywood-dreams-collection-2014/62685-hollywood-dreams-diana.html"><img src="//static.msromantic.com/145425/hollywood-dreams-diana.jpg" alt="Hollywood Dreams Diana" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/hollywood-dreams-collection-2014/62685-hollywood-dreams-diana.html"><img src="//static.msromantic.com/145425/hollywood-dreams-diana.jpg" alt="Hollywood Dreams Diana" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/hollywood-dreams-collection-2014/62685-hollywood-dreams-diana.html"><img src="//static.msromantic.com/145424/hollywood-dreams-diana.jpg" alt="Hollywood Dreams Diana" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/hollywood-dreams-collection-2014/62685-hollywood-dreams-diana.html](https://www.readybrides.com/en/hollywood-dreams-collection-2014/62685-hollywood-dreams-diana.html)
+<!-- break --><a href="https://www.antebrands.com/en/hollywood-dreams-collection-2014/62685-hollywood-dreams-diana.html"><img src="//static.msromantic.com/145424/hollywood-dreams-diana.jpg" alt="Hollywood Dreams Diana" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/hollywood-dreams-collection-2014/62685-hollywood-dreams-diana.html](https://www.antebrands.com/en/hollywood-dreams-collection-2014/62685-hollywood-dreams-diana.html)

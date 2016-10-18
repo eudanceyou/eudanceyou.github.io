@@ -9,8 +9,8 @@ tags: [Constantino Collection Very Chic]
 Just **$349.99**
 ### 
 
-<a href="https://www.readybrides.com/en/constantino-collection-very-chic/62201-constantino-melissa.html"><img src="//static.msromantic.com/144280/constantino-melissa.jpg" alt="Constantino Νυφικό Melissa" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/constantino-collection-very-chic/62201-constantino-melissa.html"><img src="//static.msromantic.com/144280/constantino-melissa.jpg" alt="Constantino Νυφικό Melissa" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/constantino-collection-very-chic/62201-constantino-melissa.html"><img src="//static.msromantic.com/144281/constantino-melissa.jpg" alt="Constantino Νυφικό Melissa" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/constantino-collection-very-chic/62201-constantino-melissa.html"><img src="//static.msromantic.com/144279/constantino-melissa.jpg" alt="Constantino Νυφικό Melissa" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/constantino-collection-very-chic/62201-constantino-melissa.html](https://www.readybrides.com/en/constantino-collection-very-chic/62201-constantino-melissa.html)
+<!-- break --><a href="https://www.antebrands.com/en/constantino-collection-very-chic/62201-constantino-melissa.html"><img src="//static.msromantic.com/144281/constantino-melissa.jpg" alt="Constantino Νυφικό Melissa" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/constantino-collection-very-chic/62201-constantino-melissa.html"><img src="//static.msromantic.com/144279/constantino-melissa.jpg" alt="Constantino Νυφικό Melissa" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/constantino-collection-very-chic/62201-constantino-melissa.html](https://www.antebrands.com/en/constantino-collection-very-chic/62201-constantino-melissa.html)

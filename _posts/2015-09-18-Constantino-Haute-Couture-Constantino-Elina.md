@@ -9,7 +9,7 @@ tags: [Constantino Haute Couture]
 Just **$349.99**
 ### 
 
-<a href="https://www.readybrides.com/en/constantino-haute-couture/62252-constantino-elina.html"><img src="//static.msromantic.com/144423/constantino-elina.jpg" alt="Constantino Νυφικό Elina" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/constantino-haute-couture/62252-constantino-elina.html"><img src="//static.msromantic.com/144423/constantino-elina.jpg" alt="Constantino Νυφικό Elina" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/constantino-haute-couture/62252-constantino-elina.html"><img src="//static.msromantic.com/144422/constantino-elina.jpg" alt="Constantino Νυφικό Elina" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/constantino-haute-couture/62252-constantino-elina.html](https://www.readybrides.com/en/constantino-haute-couture/62252-constantino-elina.html)
+<!-- break --><a href="https://www.antebrands.com/en/constantino-haute-couture/62252-constantino-elina.html"><img src="//static.msromantic.com/144422/constantino-elina.jpg" alt="Constantino Νυφικό Elina" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/constantino-haute-couture/62252-constantino-elina.html](https://www.antebrands.com/en/constantino-haute-couture/62252-constantino-elina.html)

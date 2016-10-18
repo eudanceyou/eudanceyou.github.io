@@ -9,7 +9,7 @@ tags: [Christos Spring 2015]
 Just **$309.99**
 ### 
 
-<a href="https://www.readybrides.com/en/christos-spring-2015/61525-christos-mason.html"><img src="//static.msromantic.com/142556/christos-mason.jpg" alt="Christos Mason" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/christos-spring-2015/61525-christos-mason.html"><img src="//static.msromantic.com/142556/christos-mason.jpg" alt="Christos Mason" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/christos-spring-2015/61525-christos-mason.html](https://www.readybrides.com/en/christos-spring-2015/61525-christos-mason.html)
+Buy it: [https://www.antebrands.com/en/christos-spring-2015/61525-christos-mason.html](https://www.antebrands.com/en/christos-spring-2015/61525-christos-mason.html)

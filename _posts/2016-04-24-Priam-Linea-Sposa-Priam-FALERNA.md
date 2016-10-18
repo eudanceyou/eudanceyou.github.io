@@ -9,7 +9,7 @@ tags: [Priam Linea Sposa]
 Just **$359.99**
 ### 
 
-<a href="https://www.readybrides.com/en/priam-linea-sposa/65740-priam-falerna.html"><img src="//static.msromantic.com/151657/priam-falerna.jpg" alt="Priam FALERNA" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/priam-linea-sposa/65740-priam-falerna.html"><img src="//static.msromantic.com/151657/priam-falerna.jpg" alt="Priam FALERNA" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/priam-linea-sposa/65740-priam-falerna.html](https://www.readybrides.com/en/priam-linea-sposa/65740-priam-falerna.html)
+Buy it: [https://www.antebrands.com/en/priam-linea-sposa/65740-priam-falerna.html](https://www.antebrands.com/en/priam-linea-sposa/65740-priam-falerna.html)

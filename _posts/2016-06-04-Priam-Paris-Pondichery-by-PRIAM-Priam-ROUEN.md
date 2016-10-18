@@ -9,7 +9,7 @@ tags: [Priam Paris Pondichery by PRIAM]
 Just **$299.99**
 ### 
 
-<a href="https://www.readybrides.com/en/priam-paris-pondichery-by-priam/65781-priam-rouen.html"><img src="//static.msromantic.com/151698/priam-rouen.jpg" alt="Priam ROUEN" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/priam-paris-pondichery-by-priam/65781-priam-rouen.html"><img src="//static.msromantic.com/151698/priam-rouen.jpg" alt="Priam ROUEN" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/priam-paris-pondichery-by-priam/65781-priam-rouen.html](https://www.readybrides.com/en/priam-paris-pondichery-by-priam/65781-priam-rouen.html)
+Buy it: [https://www.antebrands.com/en/priam-paris-pondichery-by-priam/65781-priam-rouen.html](https://www.antebrands.com/en/priam-paris-pondichery-by-priam/65781-priam-rouen.html)

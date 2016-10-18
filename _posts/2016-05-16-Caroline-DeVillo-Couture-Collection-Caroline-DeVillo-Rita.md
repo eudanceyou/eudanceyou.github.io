@@ -9,7 +9,7 @@ tags: [Caroline DeVillo Couture Collection]
 Just **$249.99**
 ### 
 
-<a href="https://www.readybrides.com/en/caroline-devillo-couture-collection/61559-caroline-devillo-rita.html"><img src="//static.msromantic.com/142603/caroline-devillo-rita.jpg" alt="Caroline DeVillo Rita" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/caroline-devillo-couture-collection/61559-caroline-devillo-rita.html"><img src="//static.msromantic.com/142603/caroline-devillo-rita.jpg" alt="Caroline DeVillo Rita" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/caroline-devillo-couture-collection/61559-caroline-devillo-rita.html](https://www.readybrides.com/en/caroline-devillo-couture-collection/61559-caroline-devillo-rita.html)
+Buy it: [https://www.antebrands.com/en/caroline-devillo-couture-collection/61559-caroline-devillo-rita.html](https://www.antebrands.com/en/caroline-devillo-couture-collection/61559-caroline-devillo-rita.html)

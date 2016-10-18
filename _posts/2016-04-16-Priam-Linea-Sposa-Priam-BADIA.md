@@ -9,7 +9,7 @@ tags: [Priam Linea Sposa]
 Just **$319.99**
 ### 
 
-<a href="https://www.readybrides.com/en/priam-linea-sposa/65732-priam-badia.html"><img src="//static.msromantic.com/151649/priam-badia.jpg" alt="Priam BADIA" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/priam-linea-sposa/65732-priam-badia.html"><img src="//static.msromantic.com/151649/priam-badia.jpg" alt="Priam BADIA" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/priam-linea-sposa/65732-priam-badia.html](https://www.readybrides.com/en/priam-linea-sposa/65732-priam-badia.html)
+Buy it: [https://www.antebrands.com/en/priam-linea-sposa/65732-priam-badia.html](https://www.antebrands.com/en/priam-linea-sposa/65732-priam-badia.html)

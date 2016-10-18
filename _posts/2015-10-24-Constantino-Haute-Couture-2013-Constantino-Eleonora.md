@@ -9,7 +9,7 @@ tags: [Constantino Haute Couture 2013]
 Just **$279.99**
 ### 
 
-<a href="https://www.readybrides.com/en/constantino-haute-couture-2013/62288-constantino-eleonora.html"><img src="//static.msromantic.com/144519/constantino-eleonora.jpg" alt="Constantino Νυφικό Eleonora" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/constantino-haute-couture-2013/62288-constantino-eleonora.html"><img src="//static.msromantic.com/144519/constantino-eleonora.jpg" alt="Constantino Νυφικό Eleonora" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/constantino-haute-couture-2013/62288-constantino-eleonora.html"><img src="//static.msromantic.com/144517/constantino-eleonora.jpg" alt="Constantino Νυφικό Eleonora" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/constantino-haute-couture-2013/62288-constantino-eleonora.html](https://www.readybrides.com/en/constantino-haute-couture-2013/62288-constantino-eleonora.html)
+<!-- break --><a href="https://www.antebrands.com/en/constantino-haute-couture-2013/62288-constantino-eleonora.html"><img src="//static.msromantic.com/144517/constantino-eleonora.jpg" alt="Constantino Νυφικό Eleonora" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/constantino-haute-couture-2013/62288-constantino-eleonora.html](https://www.antebrands.com/en/constantino-haute-couture-2013/62288-constantino-eleonora.html)

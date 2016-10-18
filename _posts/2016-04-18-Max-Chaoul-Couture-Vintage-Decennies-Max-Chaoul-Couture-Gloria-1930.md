@@ -9,7 +9,7 @@ tags: [Max Chaoul Couture Vintage Decennies]
 Just **$269.99**
 ### 
 
-<a href="https://www.readybrides.com/en/max-chaoul-couture-vintage-decennies/63866-max-chaoul-couture-gloria-1930.html"><img src="//static.msromantic.com/147431/max-chaoul-couture-gloria-1930.jpg" alt="Max Chaoul Couture Gloria - 1930" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/max-chaoul-couture-vintage-decennies/63866-max-chaoul-couture-gloria-1930.html"><img src="//static.msromantic.com/147431/max-chaoul-couture-gloria-1930.jpg" alt="Max Chaoul Couture Gloria - 1930" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/max-chaoul-couture-vintage-decennies/63866-max-chaoul-couture-gloria-1930.html](https://www.readybrides.com/en/max-chaoul-couture-vintage-decennies/63866-max-chaoul-couture-gloria-1930.html)
+Buy it: [https://www.antebrands.com/en/max-chaoul-couture-vintage-decennies/63866-max-chaoul-couture-gloria-1930.html](https://www.antebrands.com/en/max-chaoul-couture-vintage-decennies/63866-max-chaoul-couture-gloria-1930.html)

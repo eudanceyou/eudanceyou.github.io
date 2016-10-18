@@ -9,7 +9,7 @@ tags: [Rivini  Fall 2016]
 Just **$329.99**
 ### 
 
-<a href="https://www.readybrides.com/en/rivini-fall-2016/65860-rivini-frida.html"><img src="//static.msromantic.com/151873/rivini-frida.jpg" alt="Rivini  Frida" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/rivini-fall-2016/65860-rivini-frida.html"><img src="//static.msromantic.com/151873/rivini-frida.jpg" alt="Rivini  Frida" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/rivini-fall-2016/65860-rivini-frida.html"><img src="//static.msromantic.com/151872/rivini-frida.jpg" alt="Rivini  Frida" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/rivini-fall-2016/65860-rivini-frida.html](https://www.readybrides.com/en/rivini-fall-2016/65860-rivini-frida.html)
+<!-- break --><a href="https://www.antebrands.com/en/rivini-fall-2016/65860-rivini-frida.html"><img src="//static.msromantic.com/151872/rivini-frida.jpg" alt="Rivini  Frida" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/rivini-fall-2016/65860-rivini-frida.html](https://www.antebrands.com/en/rivini-fall-2016/65860-rivini-frida.html)

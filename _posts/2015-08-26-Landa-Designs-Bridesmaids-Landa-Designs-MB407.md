@@ -9,7 +9,7 @@ tags: [Landa Designs Bridesmaids]
 Just **$219.99**
 ### 
 
-<a href="https://www.readybrides.com/en/landa-designs-bridesmaids/60828-landa-designs-mb407.html"><img src="//static.msromantic.com/141517/landa-designs-mb407.jpg" alt="Landa Designs MB407" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/landa-designs-bridesmaids/60828-landa-designs-mb407.html"><img src="//static.msromantic.com/141517/landa-designs-mb407.jpg" alt="Landa Designs MB407" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/landa-designs-bridesmaids/60828-landa-designs-mb407.html](https://www.readybrides.com/en/landa-designs-bridesmaids/60828-landa-designs-mb407.html)
+Buy it: [https://www.antebrands.com/en/landa-designs-bridesmaids/60828-landa-designs-mb407.html](https://www.antebrands.com/en/landa-designs-bridesmaids/60828-landa-designs-mb407.html)

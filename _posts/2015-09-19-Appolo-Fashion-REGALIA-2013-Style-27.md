@@ -9,7 +9,7 @@ tags: [Appolo Fashion REGALIA 2013]
 Just **$329.99**
 ### 
 
-<a href="https://www.readybrides.com/en/appolo-fashion-regalia-2013/61319-appolo-fashion-regalia-2013-style-27.html"><img src="//static.msromantic.com/142326/appolo-fashion-regalia-2013-style-27.jpg" alt="Appolo Fashion REGALIA 2013 Style 27" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/appolo-fashion-regalia-2013/61319-appolo-fashion-regalia-2013-style-27.html"><img src="//static.msromantic.com/142326/appolo-fashion-regalia-2013-style-27.jpg" alt="Appolo Fashion REGALIA 2013 Style 27" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/appolo-fashion-regalia-2013/61319-appolo-fashion-regalia-2013-style-27.html](https://www.readybrides.com/en/appolo-fashion-regalia-2013/61319-appolo-fashion-regalia-2013-style-27.html)
+Buy it: [https://www.antebrands.com/en/appolo-fashion-regalia-2013/61319-appolo-fashion-regalia-2013-style-27.html](https://www.antebrands.com/en/appolo-fashion-regalia-2013/61319-appolo-fashion-regalia-2013-style-27.html)

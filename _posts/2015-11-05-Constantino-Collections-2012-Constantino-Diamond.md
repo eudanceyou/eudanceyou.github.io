@@ -9,7 +9,7 @@ tags: [Constantino Collections 2012]
 Just **$429.99**
 ### 
 
-<a href="https://www.readybrides.com/en/constantino-collections-2012/62300-constantino-diamond.html"><img src="//static.msromantic.com/144543/constantino-diamond.jpg" alt="Constantino Νυφικό Diamond" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/constantino-collections-2012/62300-constantino-diamond.html"><img src="//static.msromantic.com/144543/constantino-diamond.jpg" alt="Constantino Νυφικό Diamond" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/constantino-collections-2012/62300-constantino-diamond.html](https://www.readybrides.com/en/constantino-collections-2012/62300-constantino-diamond.html)
+Buy it: [https://www.antebrands.com/en/constantino-collections-2012/62300-constantino-diamond.html](https://www.antebrands.com/en/constantino-collections-2012/62300-constantino-diamond.html)

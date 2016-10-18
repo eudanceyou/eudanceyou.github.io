@@ -9,8 +9,8 @@ tags: [Constantino Collection Princess Line]
 Just **$349.99**
 ### 
 
-<a href="https://www.readybrides.com/en/constantino-collection-princess-line/62235-constantino-marita.html"><img src="//static.msromantic.com/144376/constantino-marita.jpg" alt="Constantino Νυφικό Marita" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/constantino-collection-princess-line/62235-constantino-marita.html"><img src="//static.msromantic.com/144376/constantino-marita.jpg" alt="Constantino Νυφικό Marita" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/constantino-collection-princess-line/62235-constantino-marita.html"><img src="//static.msromantic.com/144377/constantino-marita.jpg" alt="Constantino Νυφικό Marita" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/constantino-collection-princess-line/62235-constantino-marita.html"><img src="//static.msromantic.com/144375/constantino-marita.jpg" alt="Constantino Νυφικό Marita" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/constantino-collection-princess-line/62235-constantino-marita.html](https://www.readybrides.com/en/constantino-collection-princess-line/62235-constantino-marita.html)
+<!-- break --><a href="https://www.antebrands.com/en/constantino-collection-princess-line/62235-constantino-marita.html"><img src="//static.msromantic.com/144377/constantino-marita.jpg" alt="Constantino Νυφικό Marita" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/constantino-collection-princess-line/62235-constantino-marita.html"><img src="//static.msromantic.com/144375/constantino-marita.jpg" alt="Constantino Νυφικό Marita" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/constantino-collection-princess-line/62235-constantino-marita.html](https://www.antebrands.com/en/constantino-collection-princess-line/62235-constantino-marita.html)

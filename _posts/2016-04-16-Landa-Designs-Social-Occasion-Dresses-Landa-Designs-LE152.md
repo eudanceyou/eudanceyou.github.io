@@ -9,7 +9,7 @@ tags: [Landa Designs Social Occasion Dresses]
 Just **$379.99**
 ### 
 
-<a href="https://www.readybrides.com/en/landa-designs-social-occasion-dresses/60595-landa-designs-le152.html"><img src="//static.msromantic.com/141094/landa-designs-le152.jpg" alt="Landa Designs LE152" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/landa-designs-social-occasion-dresses/60595-landa-designs-le152.html"><img src="//static.msromantic.com/141094/landa-designs-le152.jpg" alt="Landa Designs LE152" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/landa-designs-social-occasion-dresses/60595-landa-designs-le152.html"><img src="//static.msromantic.com/141093/landa-designs-le152.jpg" alt="Landa Designs LE152" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/landa-designs-social-occasion-dresses/60595-landa-designs-le152.html](https://www.readybrides.com/en/landa-designs-social-occasion-dresses/60595-landa-designs-le152.html)
+<!-- break --><a href="https://www.antebrands.com/en/landa-designs-social-occasion-dresses/60595-landa-designs-le152.html"><img src="//static.msromantic.com/141093/landa-designs-le152.jpg" alt="Landa Designs LE152" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/landa-designs-social-occasion-dresses/60595-landa-designs-le152.html](https://www.antebrands.com/en/landa-designs-social-occasion-dresses/60595-landa-designs-le152.html)

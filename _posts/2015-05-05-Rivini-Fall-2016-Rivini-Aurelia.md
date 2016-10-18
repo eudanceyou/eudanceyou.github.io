@@ -9,7 +9,7 @@ tags: [Rivini  Fall 2016]
 Just **$399.99**
 ### 
 
-<a href="https://www.readybrides.com/en/rivini-fall-2016/65852-rivini-aurelia.html"><img src="//static.msromantic.com/151857/rivini-aurelia.jpg" alt="Rivini  Aurelia" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/rivini-fall-2016/65852-rivini-aurelia.html"><img src="//static.msromantic.com/151857/rivini-aurelia.jpg" alt="Rivini  Aurelia" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/rivini-fall-2016/65852-rivini-aurelia.html"><img src="//static.msromantic.com/151856/rivini-aurelia.jpg" alt="Rivini  Aurelia" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/rivini-fall-2016/65852-rivini-aurelia.html](https://www.readybrides.com/en/rivini-fall-2016/65852-rivini-aurelia.html)
+<!-- break --><a href="https://www.antebrands.com/en/rivini-fall-2016/65852-rivini-aurelia.html"><img src="//static.msromantic.com/151856/rivini-aurelia.jpg" alt="Rivini  Aurelia" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/rivini-fall-2016/65852-rivini-aurelia.html](https://www.antebrands.com/en/rivini-fall-2016/65852-rivini-aurelia.html)

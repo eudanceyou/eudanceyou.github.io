@@ -9,7 +9,7 @@ tags: [Constantino Collection Pure Romance 2013]
 Just **$309.99**
 ### 
 
-<a href="https://www.readybrides.com/en/constantino-collection-pure-romance-2013/62269-constantino-agelina.html"><img src="//static.msromantic.com/144466/constantino-agelina.jpg" alt="Constantino Νυφικό Agelina" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/constantino-collection-pure-romance-2013/62269-constantino-agelina.html"><img src="//static.msromantic.com/144466/constantino-agelina.jpg" alt="Constantino Νυφικό Agelina" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/constantino-collection-pure-romance-2013/62269-constantino-agelina.html"><img src="//static.msromantic.com/144465/constantino-agelina.jpg" alt="Constantino Νυφικό Agelina" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/constantino-collection-pure-romance-2013/62269-constantino-agelina.html](https://www.readybrides.com/en/constantino-collection-pure-romance-2013/62269-constantino-agelina.html)
+<!-- break --><a href="https://www.antebrands.com/en/constantino-collection-pure-romance-2013/62269-constantino-agelina.html"><img src="//static.msromantic.com/144465/constantino-agelina.jpg" alt="Constantino Νυφικό Agelina" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/constantino-collection-pure-romance-2013/62269-constantino-agelina.html](https://www.antebrands.com/en/constantino-collection-pure-romance-2013/62269-constantino-agelina.html)

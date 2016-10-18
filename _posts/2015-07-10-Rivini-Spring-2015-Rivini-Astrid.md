@@ -9,7 +9,7 @@ tags: [Rivini  Spring 2015]
 Just **$389.99**
 ### 
 
-<a href="https://www.readybrides.com/en/rivini-spring-2015/65918-rivini-astrid.html"><img src="//static.msromantic.com/151976/rivini-astrid.jpg" alt="Rivini  Astrid" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/rivini-spring-2015/65918-rivini-astrid.html"><img src="//static.msromantic.com/151976/rivini-astrid.jpg" alt="Rivini  Astrid" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/rivini-spring-2015/65918-rivini-astrid.html](https://www.readybrides.com/en/rivini-spring-2015/65918-rivini-astrid.html)
+Buy it: [https://www.antebrands.com/en/rivini-spring-2015/65918-rivini-astrid.html](https://www.antebrands.com/en/rivini-spring-2015/65918-rivini-astrid.html)

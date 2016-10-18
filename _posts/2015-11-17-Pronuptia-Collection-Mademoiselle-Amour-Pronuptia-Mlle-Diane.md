@@ -9,7 +9,7 @@ tags: [Pronuptia Collection Mademoiselle Amour]
 Just **$319.99**
 ### 
 
-<a href="https://www.readybrides.com/en/pronuptia-collection-mademoiselle-amour/65581-pronuptia-mlle-diane.html"><img src="//static.msromantic.com/151383/pronuptia-mlle-diane.jpg" alt="Pronuptia Mlle Diane" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/pronuptia-collection-mademoiselle-amour/65581-pronuptia-mlle-diane.html"><img src="//static.msromantic.com/151383/pronuptia-mlle-diane.jpg" alt="Pronuptia Mlle Diane" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/pronuptia-collection-mademoiselle-amour/65581-pronuptia-mlle-diane.html"><img src="//static.msromantic.com/151382/pronuptia-mlle-diane.jpg" alt="Pronuptia Mlle Diane" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/pronuptia-collection-mademoiselle-amour/65581-pronuptia-mlle-diane.html](https://www.readybrides.com/en/pronuptia-collection-mademoiselle-amour/65581-pronuptia-mlle-diane.html)
+<!-- break --><a href="https://www.antebrands.com/en/pronuptia-collection-mademoiselle-amour/65581-pronuptia-mlle-diane.html"><img src="//static.msromantic.com/151382/pronuptia-mlle-diane.jpg" alt="Pronuptia Mlle Diane" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/pronuptia-collection-mademoiselle-amour/65581-pronuptia-mlle-diane.html](https://www.antebrands.com/en/pronuptia-collection-mademoiselle-amour/65581-pronuptia-mlle-diane.html)

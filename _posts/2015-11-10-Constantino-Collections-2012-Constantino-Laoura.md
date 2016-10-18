@@ -9,7 +9,7 @@ tags: [Constantino Collections 2012]
 Just **$379.99**
 ### 
 
-<a href="https://www.readybrides.com/en/constantino-collections-2012/62305-constantino-laoura.html"><img src="//static.msromantic.com/144550/constantino-laoura.jpg" alt="Constantino Νυφικό Laoura" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/constantino-collections-2012/62305-constantino-laoura.html"><img src="//static.msromantic.com/144550/constantino-laoura.jpg" alt="Constantino Νυφικό Laoura" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/constantino-collections-2012/62305-constantino-laoura.html](https://www.readybrides.com/en/constantino-collections-2012/62305-constantino-laoura.html)
+Buy it: [https://www.antebrands.com/en/constantino-collections-2012/62305-constantino-laoura.html](https://www.antebrands.com/en/constantino-collections-2012/62305-constantino-laoura.html)

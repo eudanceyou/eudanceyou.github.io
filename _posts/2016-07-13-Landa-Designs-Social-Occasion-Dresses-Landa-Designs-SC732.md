@@ -9,7 +9,7 @@ tags: [Landa Designs Social Occasion Dresses]
 Just **$389.99**
 ### 
 
-<a href="https://www.readybrides.com/en/landa-designs-social-occasion-dresses/60683-landa-designs-sc732.html"><img src="//static.msromantic.com/141260/landa-designs-sc732.jpg" alt="Landa Designs SC732" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/landa-designs-social-occasion-dresses/60683-landa-designs-sc732.html"><img src="//static.msromantic.com/141260/landa-designs-sc732.jpg" alt="Landa Designs SC732" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/landa-designs-social-occasion-dresses/60683-landa-designs-sc732.html"><img src="//static.msromantic.com/141259/landa-designs-sc732.jpg" alt="Landa Designs SC732" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/landa-designs-social-occasion-dresses/60683-landa-designs-sc732.html](https://www.readybrides.com/en/landa-designs-social-occasion-dresses/60683-landa-designs-sc732.html)
+<!-- break --><a href="https://www.antebrands.com/en/landa-designs-social-occasion-dresses/60683-landa-designs-sc732.html"><img src="//static.msromantic.com/141259/landa-designs-sc732.jpg" alt="Landa Designs SC732" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/landa-designs-social-occasion-dresses/60683-landa-designs-sc732.html](https://www.antebrands.com/en/landa-designs-social-occasion-dresses/60683-landa-designs-sc732.html)

@@ -9,8 +9,8 @@ tags: [Claire Pettibone Couture Continuing Collection]
 Just **$409.99**
 ### 
 
-<a href="https://www.readybrides.com/en/claire-pettibone-couture-continuing-collection/62081-claire-pettibone-couture-willow.html"><img src="//static.msromantic.com/143764/claire-pettibone-couture-willow.jpg" alt="Claire Pettibone Couture Willow" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/claire-pettibone-couture-continuing-collection/62081-claire-pettibone-couture-willow.html"><img src="//static.msromantic.com/143764/claire-pettibone-couture-willow.jpg" alt="Claire Pettibone Couture Willow" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/claire-pettibone-couture-continuing-collection/62081-claire-pettibone-couture-willow.html"><img src="//static.msromantic.com/143765/claire-pettibone-couture-willow.jpg" alt="Claire Pettibone Couture Willow" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/claire-pettibone-couture-continuing-collection/62081-claire-pettibone-couture-willow.html"><img src="//static.msromantic.com/143763/claire-pettibone-couture-willow.jpg" alt="Claire Pettibone Couture Willow" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/claire-pettibone-couture-continuing-collection/62081-claire-pettibone-couture-willow.html](https://www.readybrides.com/en/claire-pettibone-couture-continuing-collection/62081-claire-pettibone-couture-willow.html)
+<!-- break --><a href="https://www.antebrands.com/en/claire-pettibone-couture-continuing-collection/62081-claire-pettibone-couture-willow.html"><img src="//static.msromantic.com/143765/claire-pettibone-couture-willow.jpg" alt="Claire Pettibone Couture Willow" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/claire-pettibone-couture-continuing-collection/62081-claire-pettibone-couture-willow.html"><img src="//static.msromantic.com/143763/claire-pettibone-couture-willow.jpg" alt="Claire Pettibone Couture Willow" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/claire-pettibone-couture-continuing-collection/62081-claire-pettibone-couture-willow.html](https://www.antebrands.com/en/claire-pettibone-couture-continuing-collection/62081-claire-pettibone-couture-willow.html)

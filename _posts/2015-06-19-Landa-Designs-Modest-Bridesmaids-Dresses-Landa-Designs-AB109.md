@@ -9,7 +9,7 @@ tags: [Landa Designs Modest Bridesmaid's Dresses]
 Just **$209.99**
 ### 
 
-<a href="https://www.readybrides.com/en/landa-designs-modest-bridesmaid-s-dresses/60760-landa-designs-ab109.html"><img src="//static.msromantic.com/141400/landa-designs-ab109.jpg" alt="Landa Designs AB109" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/landa-designs-modest-bridesmaid-s-dresses/60760-landa-designs-ab109.html"><img src="//static.msromantic.com/141400/landa-designs-ab109.jpg" alt="Landa Designs AB109" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/landa-designs-modest-bridesmaid-s-dresses/60760-landa-designs-ab109.html"><img src="//static.msromantic.com/141399/landa-designs-ab109.jpg" alt="Landa Designs AB109" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/landa-designs-modest-bridesmaid-s-dresses/60760-landa-designs-ab109.html](https://www.readybrides.com/en/landa-designs-modest-bridesmaid-s-dresses/60760-landa-designs-ab109.html)
+<!-- break --><a href="https://www.antebrands.com/en/landa-designs-modest-bridesmaid-s-dresses/60760-landa-designs-ab109.html"><img src="//static.msromantic.com/141399/landa-designs-ab109.jpg" alt="Landa Designs AB109" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/landa-designs-modest-bridesmaid-s-dresses/60760-landa-designs-ab109.html](https://www.antebrands.com/en/landa-designs-modest-bridesmaid-s-dresses/60760-landa-designs-ab109.html)

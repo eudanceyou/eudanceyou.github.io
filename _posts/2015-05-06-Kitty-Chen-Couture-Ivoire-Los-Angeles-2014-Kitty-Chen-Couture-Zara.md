@@ -9,7 +9,7 @@ tags: [Kitty Chen Couture Ivoire Los Angeles 2014]
 Just **$519.99**
 ### 
 
-<a href="https://www.readybrides.com/en/kitty-chen-couture-ivoire-los-angeles-2014/63518-kitty-chen-couture-zara.html"><img src="//static.msromantic.com/146537/kitty-chen-couture-zara.jpg" alt="Kitty Chen Couture Zara" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/kitty-chen-couture-ivoire-los-angeles-2014/63518-kitty-chen-couture-zara.html"><img src="//static.msromantic.com/146537/kitty-chen-couture-zara.jpg" alt="Kitty Chen Couture Zara" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/kitty-chen-couture-ivoire-los-angeles-2014/63518-kitty-chen-couture-zara.html"><img src="//static.msromantic.com/146536/kitty-chen-couture-zara.jpg" alt="Kitty Chen Couture Zara" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/kitty-chen-couture-ivoire-los-angeles-2014/63518-kitty-chen-couture-zara.html](https://www.readybrides.com/en/kitty-chen-couture-ivoire-los-angeles-2014/63518-kitty-chen-couture-zara.html)
+<!-- break --><a href="https://www.antebrands.com/en/kitty-chen-couture-ivoire-los-angeles-2014/63518-kitty-chen-couture-zara.html"><img src="//static.msromantic.com/146536/kitty-chen-couture-zara.jpg" alt="Kitty Chen Couture Zara" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/kitty-chen-couture-ivoire-los-angeles-2014/63518-kitty-chen-couture-zara.html](https://www.antebrands.com/en/kitty-chen-couture-ivoire-los-angeles-2014/63518-kitty-chen-couture-zara.html)

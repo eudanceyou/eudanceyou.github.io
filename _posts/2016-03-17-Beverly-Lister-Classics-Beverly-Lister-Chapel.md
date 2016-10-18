@@ -9,7 +9,7 @@ tags: [Beverly Lister Classics]
 Just **$249.99**
 ### 
 
-<a href="https://www.readybrides.com/en/beverly-lister-classics/61499-beverly-lister-chapel.html"><img src="//static.msromantic.com/142508/beverly-lister-chapel.jpg" alt="Beverly Lister Chapel" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/beverly-lister-classics/61499-beverly-lister-chapel.html"><img src="//static.msromantic.com/142508/beverly-lister-chapel.jpg" alt="Beverly Lister Chapel" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/beverly-lister-classics/61499-beverly-lister-chapel.html](https://www.readybrides.com/en/beverly-lister-classics/61499-beverly-lister-chapel.html)
+Buy it: [https://www.antebrands.com/en/beverly-lister-classics/61499-beverly-lister-chapel.html](https://www.antebrands.com/en/beverly-lister-classics/61499-beverly-lister-chapel.html)

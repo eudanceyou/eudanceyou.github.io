@@ -9,7 +9,7 @@ tags: [Priam Linea Sposa]
 Just **$329.99**
 ### 
 
-<a href="https://www.readybrides.com/en/priam-linea-sposa/65748-priam-zanga.html"><img src="//static.msromantic.com/151665/priam-zanga.jpg" alt="Priam ZANGA" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/priam-linea-sposa/65748-priam-zanga.html"><img src="//static.msromantic.com/151665/priam-zanga.jpg" alt="Priam ZANGA" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/priam-linea-sposa/65748-priam-zanga.html](https://www.readybrides.com/en/priam-linea-sposa/65748-priam-zanga.html)
+Buy it: [https://www.antebrands.com/en/priam-linea-sposa/65748-priam-zanga.html](https://www.antebrands.com/en/priam-linea-sposa/65748-priam-zanga.html)

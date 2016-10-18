@@ -9,7 +9,7 @@ tags: [Priam Paris Samarcande by PRIAM]
 Just **$359.99**
 ### 
 
-<a href="https://www.readybrides.com/en/priam-paris-samarcande-by-priam/65768-priam-valencia.html"><img src="//static.msromantic.com/151685/priam-valencia.jpg" alt="Priam VALENCIA" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/priam-paris-samarcande-by-priam/65768-priam-valencia.html"><img src="//static.msromantic.com/151685/priam-valencia.jpg" alt="Priam VALENCIA" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/priam-paris-samarcande-by-priam/65768-priam-valencia.html](https://www.readybrides.com/en/priam-paris-samarcande-by-priam/65768-priam-valencia.html)
+Buy it: [https://www.antebrands.com/en/priam-paris-samarcande-by-priam/65768-priam-valencia.html](https://www.antebrands.com/en/priam-paris-samarcande-by-priam/65768-priam-valencia.html)

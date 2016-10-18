@@ -9,7 +9,7 @@ tags: [Annasul Y. ,Annasul Y.,Mermaid/Trumpet,Illusion,Court Train,1/2 Sleeves]
 Just **$359.99**
 ###   1/2 Sleeves Court Train Mermaid/Trumpet 
 <table><tr><td>BRANDS</td><td>Annasul Y.</td></tr><tr><td>Silhouette</td><td>Mermaid/Trumpet</td></tr><tr><td>Neckline</td><td>Illusion</td></tr><tr><td>Hemline/Train</td><td>Court Train</td></tr><tr><td>Sleeve</td><td>1/2 Sleeves</td></tr></table>
-<a href="https://www.readybrides.com/en/annasul-y-/62316-annasul-y-quartz.html"><img src="//static.msromantic.com/144563/annasul-y-quartz.jpg" alt="Annasul Y. QUARTZ" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/annasul-y-/62316-annasul-y-quartz.html"><img src="//static.msromantic.com/144563/annasul-y-quartz.jpg" alt="Annasul Y. QUARTZ" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/annasul-y-/62316-annasul-y-quartz.html](https://www.readybrides.com/en/annasul-y-/62316-annasul-y-quartz.html)
+Buy it: [https://www.antebrands.com/en/annasul-y-/62316-annasul-y-quartz.html](https://www.antebrands.com/en/annasul-y-/62316-annasul-y-quartz.html)

@@ -9,7 +9,7 @@ tags: [Christos Signature Styles]
 Just **$309.99**
 ### 
 
-<a href="https://www.readybrides.com/en/christos-signature-styles/61537-christos-desiree.html"><img src="//static.msromantic.com/142578/christos-desiree.jpg" alt="Christos Desiree" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/christos-signature-styles/61537-christos-desiree.html"><img src="//static.msromantic.com/142578/christos-desiree.jpg" alt="Christos Desiree" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/christos-signature-styles/61537-christos-desiree.html](https://www.readybrides.com/en/christos-signature-styles/61537-christos-desiree.html)
+Buy it: [https://www.antebrands.com/en/christos-signature-styles/61537-christos-desiree.html](https://www.antebrands.com/en/christos-signature-styles/61537-christos-desiree.html)

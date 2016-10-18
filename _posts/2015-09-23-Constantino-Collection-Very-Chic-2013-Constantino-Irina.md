@@ -9,7 +9,7 @@ tags: [Constantino Collection Very Chic 2013]
 Just **$329.99**
 ### 
 
-<a href="https://www.readybrides.com/en/constantino-collection-very-chic-2013/62257-constantino-irina.html"><img src="//static.msromantic.com/144435/constantino-irina.jpg" alt="Constantino Νυφικό Irina" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/constantino-collection-very-chic-2013/62257-constantino-irina.html"><img src="//static.msromantic.com/144435/constantino-irina.jpg" alt="Constantino Νυφικό Irina" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/constantino-collection-very-chic-2013/62257-constantino-irina.html"><img src="//static.msromantic.com/144434/constantino-irina.jpg" alt="Constantino Νυφικό Irina" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/constantino-collection-very-chic-2013/62257-constantino-irina.html](https://www.readybrides.com/en/constantino-collection-very-chic-2013/62257-constantino-irina.html)
+<!-- break --><a href="https://www.antebrands.com/en/constantino-collection-very-chic-2013/62257-constantino-irina.html"><img src="//static.msromantic.com/144434/constantino-irina.jpg" alt="Constantino Νυφικό Irina" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/constantino-collection-very-chic-2013/62257-constantino-irina.html](https://www.antebrands.com/en/constantino-collection-very-chic-2013/62257-constantino-irina.html)

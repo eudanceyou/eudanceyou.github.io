@@ -9,7 +9,7 @@ tags: [Peter Langner Bridal 2015]
 Just **$279.99**
 ### 
 
-<a href="https://www.readybrides.com/en/peter-langner-bridal-2015/65252-peter-langner-astrid.html"><img src="//static.msromantic.com/150799/peter-langner-astrid.jpg" alt="Peter Langner ASTRID" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/peter-langner-bridal-2015/65252-peter-langner-astrid.html"><img src="//static.msromantic.com/150799/peter-langner-astrid.jpg" alt="Peter Langner ASTRID" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/peter-langner-bridal-2015/65252-peter-langner-astrid.html"><img src="//static.msromantic.com/150798/peter-langner-astrid.jpg" alt="Peter Langner ASTRID" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/peter-langner-bridal-2015/65252-peter-langner-astrid.html](https://www.readybrides.com/en/peter-langner-bridal-2015/65252-peter-langner-astrid.html)
+<!-- break --><a href="https://www.antebrands.com/en/peter-langner-bridal-2015/65252-peter-langner-astrid.html"><img src="//static.msromantic.com/150798/peter-langner-astrid.jpg" alt="Peter Langner ASTRID" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/peter-langner-bridal-2015/65252-peter-langner-astrid.html](https://www.antebrands.com/en/peter-langner-bridal-2015/65252-peter-langner-astrid.html)

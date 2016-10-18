@@ -9,7 +9,7 @@ tags: [Kitty Chen Couture Kittychen Couture 2013]
 Just **$389.99**
 ### 
 
-<a href="https://www.readybrides.com/en/kitty-chen-couture-kittychen-couture-2013/63558-kitty-chen-couture-alexandria.html"><img src="//static.msromantic.com/146627/kitty-chen-couture-alexandria.jpg" alt="Kitty Chen Couture Alexandria" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/kitty-chen-couture-kittychen-couture-2013/63558-kitty-chen-couture-alexandria.html"><img src="//static.msromantic.com/146627/kitty-chen-couture-alexandria.jpg" alt="Kitty Chen Couture Alexandria" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/kitty-chen-couture-kittychen-couture-2013/63558-kitty-chen-couture-alexandria.html"><img src="//static.msromantic.com/146626/kitty-chen-couture-alexandria.jpg" alt="Kitty Chen Couture Alexandria" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/kitty-chen-couture-kittychen-couture-2013/63558-kitty-chen-couture-alexandria.html](https://www.readybrides.com/en/kitty-chen-couture-kittychen-couture-2013/63558-kitty-chen-couture-alexandria.html)
+<!-- break --><a href="https://www.antebrands.com/en/kitty-chen-couture-kittychen-couture-2013/63558-kitty-chen-couture-alexandria.html"><img src="//static.msromantic.com/146626/kitty-chen-couture-alexandria.jpg" alt="Kitty Chen Couture Alexandria" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/kitty-chen-couture-kittychen-couture-2013/63558-kitty-chen-couture-alexandria.html](https://www.antebrands.com/en/kitty-chen-couture-kittychen-couture-2013/63558-kitty-chen-couture-alexandria.html)

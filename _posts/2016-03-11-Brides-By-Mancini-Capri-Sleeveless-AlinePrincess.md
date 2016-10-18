@@ -9,7 +9,7 @@ tags: [Brides By Mancini,Brides By Mancin,Aline/Princess ,Sweetheart,Sleeveless]
 Just **$279.99**
 ###   Sleeveless  Aline/Princess  
 <table><tr><td>BRANDS</td><td>Brides By Mancin</td></tr><tr><td>Silhouette</td><td>Aline/Princess </td></tr><tr><td>Neckline</td><td>Sweetheart</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr></table>
-<a href="https://www.readybrides.com/en/brides-by-mancini/61960-brides-by-mancini-capri.html"><img src="//static.msromantic.com/143329/brides-by-mancini-capri.jpg" alt="Brides By Mancini Capri" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/brides-by-mancini/61960-brides-by-mancini-capri.html"><img src="//static.msromantic.com/143329/brides-by-mancini-capri.jpg" alt="Brides By Mancini Capri" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/brides-by-mancini/61960-brides-by-mancini-capri.html](https://www.readybrides.com/en/brides-by-mancini/61960-brides-by-mancini-capri.html)
+Buy it: [https://www.antebrands.com/en/brides-by-mancini/61960-brides-by-mancini-capri.html](https://www.antebrands.com/en/brides-by-mancini/61960-brides-by-mancini-capri.html)

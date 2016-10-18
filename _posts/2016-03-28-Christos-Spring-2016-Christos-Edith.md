@@ -9,7 +9,7 @@ tags: [Christos Spring 2016]
 Just **$339.99**
 ### 
 
-<a href="https://www.readybrides.com/en/christos-spring-2016/61510-christos-edith.html"><img src="//static.msromantic.com/142528/christos-edith.jpg" alt="Christos Edith" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/christos-spring-2016/61510-christos-edith.html"><img src="//static.msromantic.com/142528/christos-edith.jpg" alt="Christos Edith" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/christos-spring-2016/61510-christos-edith.html"><img src="//static.msromantic.com/142527/christos-edith.jpg" alt="Christos Edith" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/christos-spring-2016/61510-christos-edith.html](https://www.readybrides.com/en/christos-spring-2016/61510-christos-edith.html)
+<!-- break --><a href="https://www.antebrands.com/en/christos-spring-2016/61510-christos-edith.html"><img src="//static.msromantic.com/142527/christos-edith.jpg" alt="Christos Edith" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/christos-spring-2016/61510-christos-edith.html](https://www.antebrands.com/en/christos-spring-2016/61510-christos-edith.html)

@@ -9,7 +9,7 @@ tags: [Christos Signature Styles]
 Just **$329.99**
 ### 
 
-<a href="https://www.readybrides.com/en/christos-signature-styles/61531-christos-eve.html"><img src="//static.msromantic.com/142567/christos-eve.jpg" alt="Christos Eve" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/christos-signature-styles/61531-christos-eve.html"><img src="//static.msromantic.com/142567/christos-eve.jpg" alt="Christos Eve" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/christos-signature-styles/61531-christos-eve.html](https://www.readybrides.com/en/christos-signature-styles/61531-christos-eve.html)
+Buy it: [https://www.antebrands.com/en/christos-signature-styles/61531-christos-eve.html](https://www.antebrands.com/en/christos-signature-styles/61531-christos-eve.html)

@@ -9,7 +9,7 @@ tags: [Peter Langner Social Network Colletcion]
 Just **$309.99**
 ### 
 
-<a href="https://www.readybrides.com/en/peter-langner-social-network-colletcion/65258-peter-langner-amelie.html"><img src="//static.msromantic.com/150815/peter-langner-amelie.jpg" alt="Peter Langner AMELIE" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/peter-langner-social-network-colletcion/65258-peter-langner-amelie.html"><img src="//static.msromantic.com/150815/peter-langner-amelie.jpg" alt="Peter Langner AMELIE" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/peter-langner-social-network-colletcion/65258-peter-langner-amelie.html"><img src="//static.msromantic.com/150814/peter-langner-amelie.jpg" alt="Peter Langner AMELIE" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/peter-langner-social-network-colletcion/65258-peter-langner-amelie.html](https://www.readybrides.com/en/peter-langner-social-network-colletcion/65258-peter-langner-amelie.html)
+<!-- break --><a href="https://www.antebrands.com/en/peter-langner-social-network-colletcion/65258-peter-langner-amelie.html"><img src="//static.msromantic.com/150814/peter-langner-amelie.jpg" alt="Peter Langner AMELIE" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/peter-langner-social-network-colletcion/65258-peter-langner-amelie.html](https://www.antebrands.com/en/peter-langner-social-network-colletcion/65258-peter-langner-amelie.html)

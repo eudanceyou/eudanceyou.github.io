@@ -9,8 +9,8 @@ tags: [Hollywood Dreams Collection 2015]
 Just **$339.99**
 ### 
 
-<a href="https://www.readybrides.com/en/hollywood-dreams-collection-2015/62676-hollywood-dreams-gia.html"><img src="//static.msromantic.com/145402/hollywood-dreams-gia.jpg" alt="Hollywood Dreams Gia" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/hollywood-dreams-collection-2015/62676-hollywood-dreams-gia.html"><img src="//static.msromantic.com/145402/hollywood-dreams-gia.jpg" alt="Hollywood Dreams Gia" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/hollywood-dreams-collection-2015/62676-hollywood-dreams-gia.html"><img src="//static.msromantic.com/145403/hollywood-dreams-gia.jpg" alt="Hollywood Dreams Gia" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/hollywood-dreams-collection-2015/62676-hollywood-dreams-gia.html"><img src="//static.msromantic.com/145401/hollywood-dreams-gia.jpg" alt="Hollywood Dreams Gia" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/hollywood-dreams-collection-2015/62676-hollywood-dreams-gia.html](https://www.readybrides.com/en/hollywood-dreams-collection-2015/62676-hollywood-dreams-gia.html)
+<!-- break --><a href="https://www.antebrands.com/en/hollywood-dreams-collection-2015/62676-hollywood-dreams-gia.html"><img src="//static.msromantic.com/145403/hollywood-dreams-gia.jpg" alt="Hollywood Dreams Gia" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/hollywood-dreams-collection-2015/62676-hollywood-dreams-gia.html"><img src="//static.msromantic.com/145401/hollywood-dreams-gia.jpg" alt="Hollywood Dreams Gia" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/hollywood-dreams-collection-2015/62676-hollywood-dreams-gia.html](https://www.antebrands.com/en/hollywood-dreams-collection-2015/62676-hollywood-dreams-gia.html)

@@ -9,7 +9,7 @@ tags: [Landa Designs Social Occasion Dresses]
 Just **$289.99**
 ### 
 
-<a href="https://www.readybrides.com/en/landa-designs-social-occasion-dresses/60707-landa-designs-s202.html"><img src="//static.msromantic.com/141301/landa-designs-s202.jpg" alt="Landa Designs S202" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/landa-designs-social-occasion-dresses/60707-landa-designs-s202.html"><img src="//static.msromantic.com/141301/landa-designs-s202.jpg" alt="Landa Designs S202" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/landa-designs-social-occasion-dresses/60707-landa-designs-s202.html](https://www.readybrides.com/en/landa-designs-social-occasion-dresses/60707-landa-designs-s202.html)
+Buy it: [https://www.antebrands.com/en/landa-designs-social-occasion-dresses/60707-landa-designs-s202.html](https://www.antebrands.com/en/landa-designs-social-occasion-dresses/60707-landa-designs-s202.html)

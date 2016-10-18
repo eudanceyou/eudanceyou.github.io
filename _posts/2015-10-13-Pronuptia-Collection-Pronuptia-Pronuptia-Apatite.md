@@ -9,7 +9,7 @@ tags: [Pronuptia Collection Pronuptia]
 Just **$349.99**
 ### 
 
-<a href="https://www.readybrides.com/en/pronuptia-collection-pronuptia/65546-pronuptia-apatite.html"><img src="//static.msromantic.com/151283/pronuptia-apatite.jpg" alt="Pronuptia Apatite" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/pronuptia-collection-pronuptia/65546-pronuptia-apatite.html"><img src="//static.msromantic.com/151283/pronuptia-apatite.jpg" alt="Pronuptia Apatite" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/pronuptia-collection-pronuptia/65546-pronuptia-apatite.html"><img src="//static.msromantic.com/151282/pronuptia-apatite.jpg" alt="Pronuptia Apatite" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/pronuptia-collection-pronuptia/65546-pronuptia-apatite.html](https://www.readybrides.com/en/pronuptia-collection-pronuptia/65546-pronuptia-apatite.html)
+<!-- break --><a href="https://www.antebrands.com/en/pronuptia-collection-pronuptia/65546-pronuptia-apatite.html"><img src="//static.msromantic.com/151282/pronuptia-apatite.jpg" alt="Pronuptia Apatite" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/pronuptia-collection-pronuptia/65546-pronuptia-apatite.html](https://www.antebrands.com/en/pronuptia-collection-pronuptia/65546-pronuptia-apatite.html)

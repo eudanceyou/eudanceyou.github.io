@@ -9,7 +9,7 @@ tags: [Rivini  Spring 2016]
 Just **$389.99**
 ### 
 
-<a href="https://www.readybrides.com/en/rivini-spring-2016/65879-rivini-farrah.html"><img src="//static.msromantic.com/151911/rivini-farrah.jpg" alt="Rivini  Farrah" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/rivini-spring-2016/65879-rivini-farrah.html"><img src="//static.msromantic.com/151911/rivini-farrah.jpg" alt="Rivini  Farrah" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/rivini-spring-2016/65879-rivini-farrah.html"><img src="//static.msromantic.com/151910/rivini-farrah.jpg" alt="Rivini  Farrah" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/rivini-spring-2016/65879-rivini-farrah.html](https://www.readybrides.com/en/rivini-spring-2016/65879-rivini-farrah.html)
+<!-- break --><a href="https://www.antebrands.com/en/rivini-spring-2016/65879-rivini-farrah.html"><img src="//static.msromantic.com/151910/rivini-farrah.jpg" alt="Rivini  Farrah" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/rivini-spring-2016/65879-rivini-farrah.html](https://www.antebrands.com/en/rivini-spring-2016/65879-rivini-farrah.html)

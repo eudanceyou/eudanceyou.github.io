@@ -9,7 +9,7 @@ tags: [Rivini  Spring 2016]
 Just **$319.99**
 ### 
 
-<a href="https://www.readybrides.com/en/rivini-spring-2016/65884-rivini-leana.html"><img src="//static.msromantic.com/151921/rivini-leana.jpg" alt="Rivini  Leana" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/rivini-spring-2016/65884-rivini-leana.html"><img src="//static.msromantic.com/151921/rivini-leana.jpg" alt="Rivini  Leana" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/rivini-spring-2016/65884-rivini-leana.html"><img src="//static.msromantic.com/151920/rivini-leana.jpg" alt="Rivini  Leana" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/rivini-spring-2016/65884-rivini-leana.html](https://www.readybrides.com/en/rivini-spring-2016/65884-rivini-leana.html)
+<!-- break --><a href="https://www.antebrands.com/en/rivini-spring-2016/65884-rivini-leana.html"><img src="//static.msromantic.com/151920/rivini-leana.jpg" alt="Rivini  Leana" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/rivini-spring-2016/65884-rivini-leana.html](https://www.antebrands.com/en/rivini-spring-2016/65884-rivini-leana.html)

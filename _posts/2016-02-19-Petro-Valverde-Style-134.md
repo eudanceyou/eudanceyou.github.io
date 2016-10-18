@@ -9,7 +9,7 @@ tags: [Petro Valverde]
 Just **$339.99**
 ###      
 <table><tr><td>BRANDS</td><td>Petro Valverde</td></tr></table>
-<a href="https://www.readybrides.com/en/petro-valverde/65208-petro-valverde-style-134.html"><img src="//static.msromantic.com/150698/petro-valverde-style-134.jpg" alt="Petro Valverde Style 134" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/petro-valverde/65208-petro-valverde-style-134.html"><img src="//static.msromantic.com/150698/petro-valverde-style-134.jpg" alt="Petro Valverde Style 134" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/petro-valverde/65208-petro-valverde-style-134.html](https://www.readybrides.com/en/petro-valverde/65208-petro-valverde-style-134.html)
+Buy it: [https://www.antebrands.com/en/petro-valverde/65208-petro-valverde-style-134.html](https://www.antebrands.com/en/petro-valverde/65208-petro-valverde-style-134.html)

@@ -9,7 +9,7 @@ tags: [Priam Linea Sposa]
 Just **$349.99**
 ### 
 
-<a href="https://www.readybrides.com/en/priam-linea-sposa/65739-priam-faedis.html"><img src="//static.msromantic.com/151656/priam-faedis.jpg" alt="Priam FAEDIS" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/priam-linea-sposa/65739-priam-faedis.html"><img src="//static.msromantic.com/151656/priam-faedis.jpg" alt="Priam FAEDIS" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/priam-linea-sposa/65739-priam-faedis.html](https://www.readybrides.com/en/priam-linea-sposa/65739-priam-faedis.html)
+Buy it: [https://www.antebrands.com/en/priam-linea-sposa/65739-priam-faedis.html](https://www.antebrands.com/en/priam-linea-sposa/65739-priam-faedis.html)

@@ -9,7 +9,7 @@ tags: [Peter Langner Collection 2016]
 Just **$329.99**
 ### 
 
-<a href="https://www.readybrides.com/en/peter-langner-collection-2016/65233-peter-langner-angelica.html"><img src="//static.msromantic.com/150749/peter-langner-angelica.jpg" alt="Peter Langner ANGELICA" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/peter-langner-collection-2016/65233-peter-langner-angelica.html"><img src="//static.msromantic.com/150749/peter-langner-angelica.jpg" alt="Peter Langner ANGELICA" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/peter-langner-collection-2016/65233-peter-langner-angelica.html"><img src="//static.msromantic.com/150748/peter-langner-angelica.jpg" alt="Peter Langner ANGELICA" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/peter-langner-collection-2016/65233-peter-langner-angelica.html](https://www.readybrides.com/en/peter-langner-collection-2016/65233-peter-langner-angelica.html)
+<!-- break --><a href="https://www.antebrands.com/en/peter-langner-collection-2016/65233-peter-langner-angelica.html"><img src="//static.msromantic.com/150748/peter-langner-angelica.jpg" alt="Peter Langner ANGELICA" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/peter-langner-collection-2016/65233-peter-langner-angelica.html](https://www.antebrands.com/en/peter-langner-collection-2016/65233-peter-langner-angelica.html)

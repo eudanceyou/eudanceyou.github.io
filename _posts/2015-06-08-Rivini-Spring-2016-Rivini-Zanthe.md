@@ -9,7 +9,7 @@ tags: [Rivini  Spring 2016]
 Just **$359.99**
 ### 
 
-<a href="https://www.readybrides.com/en/rivini-spring-2016/65886-rivini-zanthe.html"><img src="//static.msromantic.com/151925/rivini-zanthe.jpg" alt="Rivini  Zanthe" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/rivini-spring-2016/65886-rivini-zanthe.html"><img src="//static.msromantic.com/151925/rivini-zanthe.jpg" alt="Rivini  Zanthe" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/rivini-spring-2016/65886-rivini-zanthe.html"><img src="//static.msromantic.com/151924/rivini-zanthe.jpg" alt="Rivini  Zanthe" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/rivini-spring-2016/65886-rivini-zanthe.html](https://www.readybrides.com/en/rivini-spring-2016/65886-rivini-zanthe.html)
+<!-- break --><a href="https://www.antebrands.com/en/rivini-spring-2016/65886-rivini-zanthe.html"><img src="//static.msromantic.com/151924/rivini-zanthe.jpg" alt="Rivini  Zanthe" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/rivini-spring-2016/65886-rivini-zanthe.html](https://www.antebrands.com/en/rivini-spring-2016/65886-rivini-zanthe.html)

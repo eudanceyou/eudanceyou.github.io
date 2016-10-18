@@ -9,7 +9,7 @@ tags: [Constantino Haute Couture]
 Just **$339.99**
 ### 
 
-<a href="https://www.readybrides.com/en/constantino-haute-couture/62253-constantino-narkisos.html"><img src="//static.msromantic.com/144425/constantino-narkisos.jpg" alt="Constantino Νυφικό Narkisos" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/constantino-haute-couture/62253-constantino-narkisos.html"><img src="//static.msromantic.com/144425/constantino-narkisos.jpg" alt="Constantino Νυφικό Narkisos" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/constantino-haute-couture/62253-constantino-narkisos.html"><img src="//static.msromantic.com/144424/constantino-narkisos.jpg" alt="Constantino Νυφικό Narkisos" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/constantino-haute-couture/62253-constantino-narkisos.html](https://www.readybrides.com/en/constantino-haute-couture/62253-constantino-narkisos.html)
+<!-- break --><a href="https://www.antebrands.com/en/constantino-haute-couture/62253-constantino-narkisos.html"><img src="//static.msromantic.com/144424/constantino-narkisos.jpg" alt="Constantino Νυφικό Narkisos" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/constantino-haute-couture/62253-constantino-narkisos.html](https://www.antebrands.com/en/constantino-haute-couture/62253-constantino-narkisos.html)

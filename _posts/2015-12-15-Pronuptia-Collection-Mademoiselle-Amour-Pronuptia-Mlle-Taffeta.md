@@ -9,8 +9,8 @@ tags: [Pronuptia Collection Mademoiselle Amour]
 Just **$449.99**
 ### 
 
-<a href="https://www.readybrides.com/en/pronuptia-collection-mademoiselle-amour/65609-pronuptia-mlle-taffeta.html"><img src="//static.msromantic.com/151467/pronuptia-mlle-taffeta.jpg" alt="Pronuptia Mlle Taffeta" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/pronuptia-collection-mademoiselle-amour/65609-pronuptia-mlle-taffeta.html"><img src="//static.msromantic.com/151467/pronuptia-mlle-taffeta.jpg" alt="Pronuptia Mlle Taffeta" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/pronuptia-collection-mademoiselle-amour/65609-pronuptia-mlle-taffeta.html"><img src="//static.msromantic.com/151468/pronuptia-mlle-taffeta.jpg" alt="Pronuptia Mlle Taffeta" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/pronuptia-collection-mademoiselle-amour/65609-pronuptia-mlle-taffeta.html"><img src="//static.msromantic.com/151466/pronuptia-mlle-taffeta.jpg" alt="Pronuptia Mlle Taffeta" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/pronuptia-collection-mademoiselle-amour/65609-pronuptia-mlle-taffeta.html](https://www.readybrides.com/en/pronuptia-collection-mademoiselle-amour/65609-pronuptia-mlle-taffeta.html)
+<!-- break --><a href="https://www.antebrands.com/en/pronuptia-collection-mademoiselle-amour/65609-pronuptia-mlle-taffeta.html"><img src="//static.msromantic.com/151468/pronuptia-mlle-taffeta.jpg" alt="Pronuptia Mlle Taffeta" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/pronuptia-collection-mademoiselle-amour/65609-pronuptia-mlle-taffeta.html"><img src="//static.msromantic.com/151466/pronuptia-mlle-taffeta.jpg" alt="Pronuptia Mlle Taffeta" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/pronuptia-collection-mademoiselle-amour/65609-pronuptia-mlle-taffeta.html](https://www.antebrands.com/en/pronuptia-collection-mademoiselle-amour/65609-pronuptia-mlle-taffeta.html)

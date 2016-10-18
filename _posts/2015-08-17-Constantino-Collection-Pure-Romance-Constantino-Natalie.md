@@ -9,7 +9,7 @@ tags: [Constantino Collection Pure Romance]
 Just **$339.99**
 ### 
 
-<a href="https://www.readybrides.com/en/constantino-collection-pure-romance/62220-constantino-natalie.html"><img src="//static.msromantic.com/144332/constantino-natalie.jpg" alt="Constantino Νυφικό Natalie" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/constantino-collection-pure-romance/62220-constantino-natalie.html"><img src="//static.msromantic.com/144332/constantino-natalie.jpg" alt="Constantino Νυφικό Natalie" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/constantino-collection-pure-romance/62220-constantino-natalie.html](https://www.readybrides.com/en/constantino-collection-pure-romance/62220-constantino-natalie.html)
+Buy it: [https://www.antebrands.com/en/constantino-collection-pure-romance/62220-constantino-natalie.html](https://www.antebrands.com/en/constantino-collection-pure-romance/62220-constantino-natalie.html)

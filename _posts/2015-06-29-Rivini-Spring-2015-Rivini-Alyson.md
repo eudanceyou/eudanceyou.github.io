@@ -9,7 +9,7 @@ tags: [Rivini  Spring 2015]
 Just **$489.99**
 ### 
 
-<a href="https://www.readybrides.com/en/rivini-spring-2015/65907-rivini-alyson.html"><img src="//static.msromantic.com/151965/rivini-alyson.jpg" alt="Rivini  Alyson" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/rivini-spring-2015/65907-rivini-alyson.html"><img src="//static.msromantic.com/151965/rivini-alyson.jpg" alt="Rivini  Alyson" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/rivini-spring-2015/65907-rivini-alyson.html](https://www.readybrides.com/en/rivini-spring-2015/65907-rivini-alyson.html)
+Buy it: [https://www.antebrands.com/en/rivini-spring-2015/65907-rivini-alyson.html](https://www.antebrands.com/en/rivini-spring-2015/65907-rivini-alyson.html)

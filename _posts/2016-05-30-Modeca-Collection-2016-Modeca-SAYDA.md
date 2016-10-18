@@ -9,9 +9,9 @@ tags: [Modeca Collection 2016]
 Just **$329.99**
 ### 
 
-<a href="https://www.readybrides.com/en/modeca-collection-2016/63908-modeca-sayda.html"><img src="//static.msromantic.com/147508/modeca-sayda.jpg" alt="Modeca SAYDA" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/modeca-collection-2016/63908-modeca-sayda.html"><img src="//static.msromantic.com/147508/modeca-sayda.jpg" alt="Modeca SAYDA" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/modeca-collection-2016/63908-modeca-sayda.html"><img src="//static.msromantic.com/147509/modeca-sayda.jpg" alt="Modeca SAYDA" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/modeca-collection-2016/63908-modeca-sayda.html"><img src="//static.msromantic.com/147510/modeca-sayda.jpg" alt="Modeca SAYDA" style="width:100%;" /></a>
-<a href="https://www.readybrides.com/en/modeca-collection-2016/63908-modeca-sayda.html"><img src="//static.msromantic.com/147507/modeca-sayda.jpg" alt="Modeca SAYDA" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/modeca-collection-2016/63908-modeca-sayda.html](https://www.readybrides.com/en/modeca-collection-2016/63908-modeca-sayda.html)
+<!-- break --><a href="https://www.antebrands.com/en/modeca-collection-2016/63908-modeca-sayda.html"><img src="//static.msromantic.com/147509/modeca-sayda.jpg" alt="Modeca SAYDA" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/modeca-collection-2016/63908-modeca-sayda.html"><img src="//static.msromantic.com/147510/modeca-sayda.jpg" alt="Modeca SAYDA" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/modeca-collection-2016/63908-modeca-sayda.html"><img src="//static.msromantic.com/147507/modeca-sayda.jpg" alt="Modeca SAYDA" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/modeca-collection-2016/63908-modeca-sayda.html](https://www.antebrands.com/en/modeca-collection-2016/63908-modeca-sayda.html)

@@ -9,7 +9,7 @@ tags: [Pnina Tornai 2009]
 Just **$439.99**
 ### 
 
-<a href="https://www.readybrides.com/en/pnina-tornai-2009/65529-pnina-tornai-2009-style-782.html"><img src="//static.msromantic.com/151247/pnina-tornai-2009-style-782.jpg" alt="Pnina Tornai 2009 Style 782" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/pnina-tornai-2009/65529-pnina-tornai-2009-style-782.html"><img src="//static.msromantic.com/151247/pnina-tornai-2009-style-782.jpg" alt="Pnina Tornai 2009 Style 782" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/pnina-tornai-2009/65529-pnina-tornai-2009-style-782.html](https://www.readybrides.com/en/pnina-tornai-2009/65529-pnina-tornai-2009-style-782.html)
+Buy it: [https://www.antebrands.com/en/pnina-tornai-2009/65529-pnina-tornai-2009-style-782.html](https://www.antebrands.com/en/pnina-tornai-2009/65529-pnina-tornai-2009-style-782.html)

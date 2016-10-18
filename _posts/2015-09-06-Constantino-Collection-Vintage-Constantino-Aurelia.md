@@ -9,7 +9,7 @@ tags: [Constantino Collection Vintage]
 Just **$369.99**
 ### 
 
-<a href="https://www.readybrides.com/en/constantino-collection-vintage/62240-constantino-aurelia.html"><img src="//static.msromantic.com/144389/constantino-aurelia.jpg" alt="Constantino Νυφικό Aurelia" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/constantino-collection-vintage/62240-constantino-aurelia.html"><img src="//static.msromantic.com/144389/constantino-aurelia.jpg" alt="Constantino Νυφικό Aurelia" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/constantino-collection-vintage/62240-constantino-aurelia.html"><img src="//static.msromantic.com/144388/constantino-aurelia.jpg" alt="Constantino Νυφικό Aurelia" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/constantino-collection-vintage/62240-constantino-aurelia.html](https://www.readybrides.com/en/constantino-collection-vintage/62240-constantino-aurelia.html)
+<!-- break --><a href="https://www.antebrands.com/en/constantino-collection-vintage/62240-constantino-aurelia.html"><img src="//static.msromantic.com/144388/constantino-aurelia.jpg" alt="Constantino Νυφικό Aurelia" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/constantino-collection-vintage/62240-constantino-aurelia.html](https://www.antebrands.com/en/constantino-collection-vintage/62240-constantino-aurelia.html)

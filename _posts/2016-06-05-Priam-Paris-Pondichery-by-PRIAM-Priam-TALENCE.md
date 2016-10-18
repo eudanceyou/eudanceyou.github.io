@@ -9,7 +9,7 @@ tags: [Priam Paris Pondichery by PRIAM]
 Just **$359.99**
 ### 
 
-<a href="https://www.readybrides.com/en/priam-paris-pondichery-by-priam/65782-priam-talence.html"><img src="//static.msromantic.com/151699/priam-talence.jpg" alt="Priam TALENCE" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/priam-paris-pondichery-by-priam/65782-priam-talence.html"><img src="//static.msromantic.com/151699/priam-talence.jpg" alt="Priam TALENCE" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/priam-paris-pondichery-by-priam/65782-priam-talence.html](https://www.readybrides.com/en/priam-paris-pondichery-by-priam/65782-priam-talence.html)
+Buy it: [https://www.antebrands.com/en/priam-paris-pondichery-by-priam/65782-priam-talence.html](https://www.antebrands.com/en/priam-paris-pondichery-by-priam/65782-priam-talence.html)

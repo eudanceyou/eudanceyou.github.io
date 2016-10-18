@@ -9,7 +9,7 @@ tags: [Landa Designs Bridesmaids]
 Just **$199.99**
 ### 
 
-<a href="https://www.readybrides.com/en/landa-designs-bridesmaids/60843-landa-designs-mf500.html"><img src="//static.msromantic.com/141537/landa-designs-mf500.jpg" alt="Landa Designs MF500" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/landa-designs-bridesmaids/60843-landa-designs-mf500.html"><img src="//static.msromantic.com/141537/landa-designs-mf500.jpg" alt="Landa Designs MF500" style="width:100%;" /></a>
 
 <!-- break -->
-Buy it: [https://www.readybrides.com/en/landa-designs-bridesmaids/60843-landa-designs-mf500.html](https://www.readybrides.com/en/landa-designs-bridesmaids/60843-landa-designs-mf500.html)
+Buy it: [https://www.antebrands.com/en/landa-designs-bridesmaids/60843-landa-designs-mf500.html](https://www.antebrands.com/en/landa-designs-bridesmaids/60843-landa-designs-mf500.html)

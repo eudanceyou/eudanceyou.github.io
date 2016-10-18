@@ -9,7 +9,7 @@ tags: [Rivini  Fall 2015]
 Just **$339.99**
 ### 
 
-<a href="https://www.readybrides.com/en/rivini-fall-2015/65899-rivini-sophi.html"><img src="//static.msromantic.com/151953/rivini-sophi.jpg" alt="Rivini  Sophi" style="width:100%;" /></a>
+<a href="https://www.antebrands.com/en/rivini-fall-2015/65899-rivini-sophi.html"><img src="//static.msromantic.com/151953/rivini-sophi.jpg" alt="Rivini  Sophi" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/rivini-fall-2015/65899-rivini-sophi.html"><img src="//static.msromantic.com/151952/rivini-sophi.jpg" alt="Rivini  Sophi" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/rivini-fall-2015/65899-rivini-sophi.html](https://www.readybrides.com/en/rivini-fall-2015/65899-rivini-sophi.html)
+<!-- break --><a href="https://www.antebrands.com/en/rivini-fall-2015/65899-rivini-sophi.html"><img src="//static.msromantic.com/151952/rivini-sophi.jpg" alt="Rivini  Sophi" style="width:100%;" /></a>
+Buy it: [https://www.antebrands.com/en/rivini-fall-2015/65899-rivini-sophi.html](https://www.antebrands.com/en/rivini-fall-2015/65899-rivini-sophi.html)

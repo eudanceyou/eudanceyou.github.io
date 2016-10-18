@@ -11,9 +11,9 @@ M6242
 Just **$329.99**
 ### 
 
-<a href="https://www.readybrides.com/en/clarisse-atelier-2015/61037-clarisse-style-m6242.html"><img src="//static.msromantic.com/141789/clarisse-style-m6242.jpg" alt="Clarisse Style: 
+<a href="https://www.antebrands.com/en/clarisse-atelier-2015/61037-clarisse-style-m6242.html"><img src="//static.msromantic.com/141789/clarisse-style-m6242.jpg" alt="Clarisse Style: 
 M6242" style="width:100%;" /></a>
 
-<!-- break --><a href="https://www.readybrides.com/en/clarisse-atelier-2015/61037-clarisse-style-m6242.html"><img src="//static.msromantic.com/141788/clarisse-style-m6242.jpg" alt="Clarisse Style: 
+<!-- break --><a href="https://www.antebrands.com/en/clarisse-atelier-2015/61037-clarisse-style-m6242.html"><img src="//static.msromantic.com/141788/clarisse-style-m6242.jpg" alt="Clarisse Style: 
 M6242" style="width:100%;" /></a>
-Buy it: [https://www.readybrides.com/en/clarisse-atelier-2015/61037-clarisse-style-m6242.html](https://www.readybrides.com/en/clarisse-atelier-2015/61037-clarisse-style-m6242.html)
+Buy it: [https://www.antebrands.com/en/clarisse-atelier-2015/61037-clarisse-style-m6242.html](https://www.antebrands.com/en/clarisse-atelier-2015/61037-clarisse-style-m6242.html)
